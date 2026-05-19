@@ -1,0 +1,83 @@
+---
+title: "8 Pretty Disney Pumps ..."
+description: "Tangled Pumps; Peter Pan and Tinkerbell Pumps; Cinderella Pumps; The Little Mermaid Pumps; Ariel Pumps; More ..."
+url: "https://shoes.allwomenstalk.com/pretty-disney-pumps/"
+category: "shoes"
+last_updated: "2026-05-19"
+---
+
+# 8 Pretty Disney Pumps ...
+
+If you’re known to watch “The Little Mermaid” on repeat, your toes will simply adore these Disney pumps. Inspired by the classic flicks we grew up with, they’re perfectly whimsical yet still down-to-earth enough for a night out. Add a dose of magic to your shoe closet with a pair of these 8 pretty Disney pumps –Prince Charming not included.
+
+## 1. Tangled Pumps
+
+![Tangled Pumps](https://resize.allw.mn/1028x0/filters:format(webp)/filters:quality(70)/content/shoes/2013/02/1_tangled-pumps_570x594.jpg)
+
+Get tangled up in Disney pumps that are begging to escape the tower and hit the town. Featuring Rapunzel and Flynn, they’d look flirty and fabulous when worn with a flared skirt, silky pink blouse, and loose curls. This design is available on Etsy for $45 and can be hand-painted onto a pair of heels you mail in yourself.
+
+## 2. Peter Pan and Tinkerbell Pumps
+
+![Peter Pan and Tinkerbell Pumps](https://resize.allw.mn/1028x0/filters:format(webp)/filters:quality(70)/content/shoes/2013/02/2_peter-pan-and-tinkerbell-pumps_570x582.jpg)
+
+Pay homage to your carefree childhood with a pair of Peter Pan pumps. Let the spunkiest fairy in Neverland and the boy who never grew up add a touch of youthful charm to your little black party dress. Or, wear them with dark wash skinny jeans and a black leather blazer for a night out with the ladies (and a boy named Peter, of course!). This design is available on Etsy for $45 and can be hand-painted onto a pair of heels you mail in yourself.
+
+## 3. Cinderella Pumps
+
+![Cinderella Pumps](https://resize.allw.mn/1028x0/filters:format(webp)/filters:quality(70)/content/shoes/2013/02/3_cinderella-pumps_570x619.jpg)
+
+Forget your unfinished list of chores for the night and step into these chic Cinderella pumps. Wear them with your favorite mini dress and a swipe of red gloss as you dance the night away with Prince Charming. This design is available on Etsy for $45 and can be hand-painted onto a pair of heels you mail in yourself. If you’re a Disney-obsessed bride-to-be, send your wedding shoes to make them even more enchanting.
+
+## 4. The Little Mermaid Pumps
+
+![The Little Mermaid Pumps](https://resize.allw.mn/1028x0/filters:format(webp)/filters:quality(70)/content/shoes/2013/02/4_the-little-mermaid-pumps_570x546.jpg)
+
+Life may be much better down where it’s wetter, but these pumps are the next best thing for us land-dwellers. Featuring everyone’s favorite sea siren and her handsome hubby, they’ll remind you of the sand and surf –even when the weather makes it impossible for a trip to the shore. Wear them with a curve-hugging teal dress and pearl baubles to feel like Atlantis royalty. This design is available on Etsy for $45 and can be hand-painted onto a pair of heels you mail in yourself.
+
+## 5. Ariel Pumps
+
+![Ariel Pumps](https://resize.allw.mn/1028x0/filters:format(webp)/filters:quality(70)/content/shoes/2013/02/5_ariel-pumps_570x541.jpg)
+
+Don’t want to give Prince Eric half the attention? Keep the spotlight on Ariel with pumps featuring her as a playful mermaid on one side and a prim and proper princess on the other. Wear them with black skinny jeans, a red cashmere sweater, and a put-together satchel bag for a class look that’s just as fun as your personality. This design is available on Etsy for $45 and can be hand-painted onto a pair of heels you mail in yourself.
+
+## 6. Snow White Pumps
+
+![Snow White Pumps](https://resize.allw.mn/1028x0/filters:format(webp)/filters:quality(70)/content/shoes/2013/02/6_snow-white-pumps_570x748.jpg)
+
+When good and evil stand side by side, anything can happen! Whether you’re a good girl or were rooting for the wicked queen all along, these pumps will take your look up a notch. Let your dark side loose by pairing them with black leather jeans and a red tunic top. Or, go light and bright with a white frock and a shimmering red lip. Find this design (shoes included!) on Etsy for $150.
+
+## 7. Sleeping Beauty Pumps
+
+![Sleeping Beauty Pumps](https://resize.allw.mn/1028x0/filters:format(webp)/filters:quality(70)/content/shoes/2013/02/7_sleeping-beauty-pumps_570x525.jpg)
+
+With these on your feet, you’ll want to do anything but sleep the night away! They’d look haute with a pleated leather mini, opaque tights, a camel V-neck, and chunky gold jewelry. This design is available on Etsy for $45 and can be hand-painted onto a pair of heels you mail in yourself.
+
+## 8. Mickey & Minnie Pumps
+
+![Mickey & Minnie Pumps](https://resize.allw.mn/1028x0/filters:format(webp)/filters:quality(70)/content/shoes/2013/02/8_mickey-minnie-pumps_570x593.jpg)
+
+With one of Disney’s greatest duos on your heels, you’ll be more than prepared for a first date. Wear them with a sultry red dress and your favorite lash-lengthening mascara for a look he won’t be able to resist! This design is available on Etsy for $45 and can be hand-painted onto a pair of heels you mail in yourself.
+
+These are eight of my favorite Disney pumps on the ‘Net! Which ones would you wear? Do you have any of your own favorite styles to add to the list? Let me know in the comments!
+
+## Related Posts
+
+- [saturday night live stuart smalley](https://movies.allwomenstalk.com/priceless-snl-sketches/)
+- [house md character](https://movies.allwomenstalk.com/of-the-most-annoying-tv-characters/)
+- [denny ducette](https://movies.allwomenstalk.com/tv-moments-that-made-me-cry-like-a-baby/)
+- [top chef: just desserts scandal](https://movies.allwomenstalk.com/fab-competition-tv-shows-that-are-amazing-to-watch/)
+- [why is minkus not in season 2](https://movies.allwomenstalk.com/tv-characters-that-disappeared-without-explination/)
+- [best tv show friendships](https://movies.allwomenstalk.com/of-the-best-tv-friendships/)
+- [bill murray funniest movies](https://movies.allwomenstalk.com/brilliant-bill-murray-characters/)
+- [loreal paris riche stylo smoldering](https://movies.allwomenstalk.com/worst-series-finales/)
+- [worst spinoffs](https://movies.allwomenstalk.com/worst-tv-spinoffs-of-all-time/)
+- [fresh pronce of bell air](https://movies.allwomenstalk.com/best-reruns-to-watch-when-you-get-home-from-school/)
+- [8 Cute Sequined Ballet Flats ...](https://shoes.allwomenstalk.com/8-cute-sequined-ballet-flats/)
+- [8 Peep-Toe Pumps ...](https://shoes.allwomenstalk.com/8-peep-toe-pumps/)
+
+## Site Information
+
+- [Main page](https://allwomenstalk.com)
+- [Contact us](https://allwomenstalk.com/contact.html)
+- [HTML article](https://shoes.allwomenstalk.com/pretty-disney-pumps/)
+
