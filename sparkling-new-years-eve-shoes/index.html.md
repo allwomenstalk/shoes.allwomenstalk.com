@@ -3,7 +3,7 @@ title: "7 Sparkling New Years Eve Shoes ..."
 description: "Diamond Princess Platform Pump; Truth or Dare by Madonna Jarrard; Chinese Laundry Fall for Glitter; Kate Spade New York Licorice Too; Betsey Johnson Bliiingg; More ..."
 url: "https://shoes.allwomenstalk.com/sparkling-new-years-eve-shoes/"
 category: "shoes"
-last_updated: "2026-05-19"
+last_updated: "2026-05-21"
 ---
 
 # 7 Sparkling New Years Eve Shoes ...
@@ -54,14 +54,14 @@ These 7 pairs of New Year’s Eve shoes will help you make a statement at any pa
 
 - [neon flats](https://shoes.allwomenstalk.com/funky-neon-flats/)
 - [barefoot shoes for sports](https://shoes.allwomenstalk.com/best-barefoot-shoes/)
-- [t strap designer shoes](https://shoes.allwomenstalk.com/stylish-t-strap-shoes/)
-- [best lbd](https://shoes.allwomenstalk.com/best-shoes-for-your-lbd/)
+- [black little mermaid shoes](https://shoes.allwomenstalk.com/little-mermaid-inspired-shoes/)
 - [shoes with cat design](https://shoes.allwomenstalk.com/cool-cat-shoes/)
 - [fabulous flats](https://shoes.allwomenstalk.com/fabulous-flats-under-20/)
+- [t strap designer shoes](https://shoes.allwomenstalk.com/stylish-t-strap-shoes/)
 - [sleeping beauty heels](https://shoes.allwomenstalk.com/sleeping-beauty-inspired-shoes/)
-- [black little mermaid shoes](https://shoes.allwomenstalk.com/little-mermaid-inspired-shoes/)
-- [bow booties](https://shoes.allwomenstalk.com/beautiful-bow-boots/)
+- [best lbd](https://shoes.allwomenstalk.com/best-shoes-for-your-lbd/)
 - [cinderella shoes](https://shoes.allwomenstalk.com/cinderella-inspired-shoes/)
+- [bow booties](https://shoes.allwomenstalk.com/beautiful-bow-boots/)
 - [7 Stylish Sneakers ...](https://shoes.allwomenstalk.com/7-stylish-sneakers/)
 - [7 Tasselled Shoes ...](https://shoes.allwomenstalk.com/tasselled-shoes/)
 

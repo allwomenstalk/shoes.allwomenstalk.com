@@ -3,7 +3,7 @@ title: "Unveiling the Charm Behind Castaer Espadrilles and Why They..."
 description: "New Silhouettes to Transform Your Wardrobe; Colors and Textures That Capture the Heart; Embrace the Classics with a Twist; High-Heels That Don’t Compromise on Comfort; A New Era in Footwear; More ..."
 url: "https://shoes.allwomenstalk.com/castaner-espadrilles-2025-collection/"
 category: "shoes"
-last_updated: "2026-05-19"
+last_updated: "2026-05-21"
 ---
 
 # Unveiling the Charm Behind Castaer Espadrilles and Why They...

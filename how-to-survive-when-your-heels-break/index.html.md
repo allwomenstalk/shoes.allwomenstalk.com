@@ -3,7 +3,7 @@ title: "How to Survive when Your Heel Breaks for Girls Whove Been There before .
 description: "Take the Weight off of Your Heel; Reach for Something Sturdy; Look for a Quick Fix; Keep Crazy Glue in Your Bag if Things Feel Wobbly; Keep a Pair of Flats Handy at All Times; More ..."
 url: "https://shoes.allwomenstalk.com/how-to-survive-when-your-heels-break/"
 category: "shoes"
-last_updated: "2026-05-19"
+last_updated: "2026-05-21"
 ---
 
 # How to Survive when Your Heel Breaks for Girls Whove Been There before ...
@@ -42,16 +42,16 @@ Has a broken heel ever happened to you? What did you do? What do you wish you ha
 
 ## Related Posts
 
-- [yoga positions for anxiety](https://fitness.allwomenstalk.com/yoga-poses-for-women-with-social-anxiety/)
-- [smart girl aesthetic](https://lifestyle.allwomenstalk.com/how-to-develop-your-writing-skills/)
-- [lesson note on concept of moderation](https://lifestyle.allwomenstalk.com/things-women-should-only-do-in-moderation/)
-- [women style tips](https://fashion.allwomenstalk.com/every-woman-in-her-20s-should-follow-these-style-rules/)
-- [good things about monday](https://inspiration.allwomenstalk.com/things-successful-women-do-on-monday-mornings/)
-- [choices untameable](https://inspiration.allwomenstalk.com/how-to-be-fabulous-and-untamable/)
-- [things all women should have](https://lifestyle.allwomenstalk.com/things-every-woman-should-have-on-point/)
 - [fit gorgeous girls](https://fitness.allwomenstalk.com/ways-fit-girls-have-more-fun-in-life/)
-- [sexy guide](https://beauty.allwomenstalk.com/how-to-make-your-body-look-sexy-for-spring/)
 - [is it weird to like a girls story](https://love.allwomenstalk.com/short-story-girls-who-like-girls/)
+- [good things about monday](https://inspiration.allwomenstalk.com/things-successful-women-do-on-monday-mornings/)
+- [smart girl aesthetic](https://lifestyle.allwomenstalk.com/how-to-develop-your-writing-skills/)
+- [choices untameable](https://inspiration.allwomenstalk.com/how-to-be-fabulous-and-untamable/)
+- [yoga positions for anxiety](https://fitness.allwomenstalk.com/yoga-poses-for-women-with-social-anxiety/)
+- [things all women should have](https://lifestyle.allwomenstalk.com/things-every-woman-should-have-on-point/)
+- [women style tips](https://fashion.allwomenstalk.com/every-woman-in-her-20s-should-follow-these-style-rules/)
+- [sexy guide](https://beauty.allwomenstalk.com/how-to-make-your-body-look-sexy-for-spring/)
+- [lesson note on concept of moderation](https://lifestyle.allwomenstalk.com/things-women-should-only-do-in-moderation/)
 - [Real World Tips for Girls to Help Them Survive Har...](https://inspiration.allwomenstalk.com/tips-on-how-to-deal-with-harsh-criticism/)
 - [Life Changing Tips to Finding Inner Peace for Girl...](https://inspiration.allwomenstalk.com/steps-to-healing-your-hidden-hurts/)
 

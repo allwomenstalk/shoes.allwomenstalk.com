@@ -3,7 +3,7 @@ title: "17 Glamorous Black Jean-Michel Cazabat Boots and Booties ..."
 description: "#1; #2; #3; #4; #5; More ..."
 url: "https://shoes.allwomenstalk.com/glamorous-black-jean-michel-cazabat-boots-and-booties/"
 category: "shoes"
-last_updated: "2026-05-19"
+last_updated: "2026-05-21"
 ---
 
 # 17 Glamorous Black Jean\-Michel Cazabat Boots and Booties ...
@@ -78,16 +78,16 @@ last_updated: "2026-05-19"
 
 ## Related Posts
 
-- [16 Stylish Black Jerome C. Rousseau Platform Shoes...](https://shoes.allwomenstalk.com/stylish-black-jerome-c-rousseau-platform-shoes/)
-- [color riche le stylo smoky violet amour](https://shoes.allwomenstalk.com/gorgeous-black-yves-saint-laurent-wedges/)
-- [4 Glamorous Red Christian Dior Platform Shoes ...](https://shoes.allwomenstalk.com/glamorous-red-christian-dior-platform-shoes/)
-- [8 Fabulous Black Oscar De La Renta Pump Shoes ...](https://shoes.allwomenstalk.com/fabulous-black-oscar-de-la-renta-pump-shoes/)
+- [12 Gorgeous Black Raphael Young Platform Shoes ...](https://shoes.allwomenstalk.com/gorgeous-black-raphael-young-platform-shoes/)
 - [8 Glamorous Beige Donna Karan Sandals ...](https://shoes.allwomenstalk.com/glamorous-beige-donna-karan-sandals/)
 - [dkny platform shoes](https://shoes.allwomenstalk.com/beautiful-beige-dkny-platform-shoes/)
+- [color riche le stylo smoky violet amour](https://shoes.allwomenstalk.com/gorgeous-black-yves-saint-laurent-wedges/)
+- [8 Fabulous Black Oscar De La Renta Pump Shoes ...](https://shoes.allwomenstalk.com/fabulous-black-oscar-de-la-renta-pump-shoes/)
+- [16 Stylish Black Jerome C. Rousseau Platform Shoes...](https://shoes.allwomenstalk.com/stylish-black-jerome-c-rousseau-platform-shoes/)
 - [9 Fabulously Fashionable Velvet Shoes ...](https://shoes.allwomenstalk.com/fabulously-fashionable-velvet-shoes/)
-- [12 Gorgeous Black Raphael Young Platform Shoes ...](https://shoes.allwomenstalk.com/gorgeous-black-raphael-young-platform-shoes/)
-- [4 Gorgeous Brown Cole Haan Platform Shoes ...](https://shoes.allwomenstalk.com/gorgeous-brown-cole-haan-platform-shoes/)
 - [8 Glamorous Beige Sergio Rossi Sandals ...](https://shoes.allwomenstalk.com/glamorous-beige-sergio-rossi-sandals/)
+- [4 Glamorous Red Christian Dior Platform Shoes ...](https://shoes.allwomenstalk.com/glamorous-red-christian-dior-platform-shoes/)
+- [4 Gorgeous Brown Cole Haan Platform Shoes ...](https://shoes.allwomenstalk.com/gorgeous-brown-cole-haan-platform-shoes/)
 - [8 Glamorous Gray Jean-Michel Cazabat High Heels .....](https://shoes.allwomenstalk.com/glamorous-gray-jean-michel-cazabat-high-heels/)
 - [15 Gorgeous Brown Jean-Michel Cazabat High Heels ....](https://shoes.allwomenstalk.com/gorgeous-brown-jean-michel-cazabat-high-heels/)
 
