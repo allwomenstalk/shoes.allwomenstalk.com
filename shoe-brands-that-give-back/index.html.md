@@ -3,7 +3,7 @@ title: "7 Shoe Brands That Give Back ..."
 description: "TOMS; Osborn; SoleRebels; Bucketfeet; Roma Boots; More ..."
 url: "https://shoes.allwomenstalk.com/shoe-brands-that-give-back/"
 category: "shoes"
-last_updated: "2026-05-21"
+last_updated: "2026-05-22"
 ---
 
 # 7 Shoe Brands That Give Back ...
@@ -61,16 +61,16 @@ These are 7 fantastic shoe brands that give back. Which one is your favorite? Do
 
 ## Related Posts
 
-- [designer shoes that look like vans](https://shoes.allwomenstalk.com/fabulous-designer-shoe-collaborations/)
-- [board names on pinterest](https://shoes.allwomenstalk.com/best-pinterest-shoe-boards/)
-- [winter trend shoes](https://shoes.allwomenstalk.com/shoe-trends-to-take-note-of-this-winter/)
-- [10 types of shoes](https://shoes.allwomenstalk.com/types-of-shoes-you-need-in-your-closet/)
-- [what to do with new shoes](https://shoes.allwomenstalk.com/tips-for-wearing-in-new-shoes/)
-- [new cool sneakers](https://shoes.allwomenstalk.com/cool-sneakers-you-need-now/)
-- [tall boots for fall](https://shoes.allwomenstalk.com/tantalizing-tall-fall-boots/)
-- [large size womens dress shoes](https://fashion.allwomenstalk.com/gorgeous-shoes-for-plus-size-ladies/)
 - [emitaz age](https://shoes.allwomenstalk.com/adorable-shoes-to-wear-to-a-date-this-fall/)
+- [new cool sneakers](https://shoes.allwomenstalk.com/cool-sneakers-you-need-now/)
+- [what to do with new shoes](https://shoes.allwomenstalk.com/tips-for-wearing-in-new-shoes/)
+- [10 types of shoes](https://shoes.allwomenstalk.com/types-of-shoes-you-need-in-your-closet/)
 - [shoes for college student](https://shoes.allwomenstalk.com/comfy-shoes-for-college-students/)
+- [tall boots for fall](https://shoes.allwomenstalk.com/tantalizing-tall-fall-boots/)
+- [designer shoes that look like vans](https://shoes.allwomenstalk.com/fabulous-designer-shoe-collaborations/)
+- [large size womens dress shoes](https://fashion.allwomenstalk.com/gorgeous-shoes-for-plus-size-ladies/)
+- [winter trend shoes](https://shoes.allwomenstalk.com/shoe-trends-to-take-note-of-this-winter/)
+- [board names on pinterest](https://shoes.allwomenstalk.com/best-pinterest-shoe-boards/)
 - [7 Stylish Sneakers ...](https://shoes.allwomenstalk.com/7-stylish-sneakers/)
 - [7 Classic Designer Shoes to Invest into ...](https://shoes.allwomenstalk.com/classic-designer-shoes-to-invest-into/)
 

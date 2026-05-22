@@ -3,7 +3,7 @@ title: "These 8 Shoes Give New Meaning to Kitten Heels ..."
 description: "Black & Mint Kitty Flats; Wee Nose & Whiskers Black Heels; Dia De Los Meow-toes Flats; Black & White Polka Dots Kitty Heels; Slightly Nautical Kitty Flats; More ..."
 url: "https://shoes.allwomenstalk.com/these-shoes-give-new-meaning-to-kitten-heels/"
 category: "shoes"
-last_updated: "2026-05-21"
+last_updated: "2026-05-22"
 ---
 
 # These 8 Shoes Give New Meaning to Kitten Heels ...
@@ -60,16 +60,16 @@ Which of these kitty shoes would you wear, and how would you wear them?
 
 ## Related Posts
 
-- [how to keep shoes from dry rotting](https://shoes.allwomenstalk.com/ways-to-keep-your-shoes-looking-like-new/)
-- [heels hack](https://shoes.allwomenstalk.com/do-these-things-before-buying-a-pair-of-heels/)
-- [how to soothe feet after wearing heels](https://shoes.allwomenstalk.com/how-to-soothe-your-feet-after-wearing-heels/)
 - [how to break in leather boots](https://shoes.allwomenstalk.com/how-to-break-in-your-new-boots/)
-- [glitzy shoes](https://shoes.allwomenstalk.com/glitzy-shoes-dorothy-would-be-envious-of/)
-- [outfit with ankle boots](https://shoes.allwomenstalk.com/these-celebs-offer-up-some-ways-to-wear-ankle-boots/)
-- [open toe tall boots](https://shoes.allwomenstalk.com/which-of-these-ways-will-you-wear-peep-toe-booties-this-fall/)
 - [boots made for walking gif](https://shoes.allwomenstalk.com/dont-make-these-mistakes-with-your-winter-boots/)
+- [how to keep shoes from dry rotting](https://shoes.allwomenstalk.com/ways-to-keep-your-shoes-looking-like-new/)
 - [luisa via roma loafers and moccasins](https://shoes.allwomenstalk.com/pairs-of-loafers-youll-love-to-walk-around-town-in/)
+- [heels hack](https://shoes.allwomenstalk.com/do-these-things-before-buying-a-pair-of-heels/)
 - [boots for short dresses](https://fashion.allwomenstalk.com/how-short-girls-can-get-away-with-wearing-knee-high-boots/)
+- [how to soothe feet after wearing heels](https://shoes.allwomenstalk.com/how-to-soothe-your-feet-after-wearing-heels/)
+- [outfit with ankle boots](https://shoes.allwomenstalk.com/these-celebs-offer-up-some-ways-to-wear-ankle-boots/)
+- [glitzy shoes](https://shoes.allwomenstalk.com/glitzy-shoes-dorothy-would-be-envious-of/)
+- [open toe tall boots](https://shoes.allwomenstalk.com/which-of-these-ways-will-you-wear-peep-toe-booties-this-fall/)
 - [8 Cute Shoes by Born ...](https://shoes.allwomenstalk.com/8-cute-shoes-by-born/)
 - [8 Wonderful Wooden Heeled Shoes ...](https://shoes.allwomenstalk.com/8-wonderful-wooden-heeled-shoes/)
 

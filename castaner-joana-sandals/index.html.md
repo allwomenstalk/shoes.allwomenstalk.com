@@ -3,7 +3,7 @@ title: "Why Joana Sandals Are More Than Just a Fashion Statement..."
 description: "The Charm of Joana Suede Sandals; Walk with Confidence; Embrace Versatility; The Story Behind the Brand; Why Choose Castañer?; More ..."
 url: "https://shoes.allwomenstalk.com/castaner-joana-sandals/"
 category: "shoes"
-last_updated: "2026-05-21"
+last_updated: "2026-05-22"
 ---
 
 # Why Joana Sandals Are More Than Just a Fashion Statement...

@@ -3,7 +3,7 @@ title: "7 Shoe Trends for Spring 2013 ..."
 description: "Floral Pattern; Boat Shoes; Knee High Gladiators; Pop of Color Shoes; Chunky Heels; More ..."
 url: "https://shoes.allwomenstalk.com/shoe-trends-for-spring/"
 category: "shoes"
-last_updated: "2026-05-21"
+last_updated: "2026-05-22"
 ---
 
 # 7 Shoe Trends for Spring 2013 ...
@@ -56,14 +56,14 @@ I can't wait for the beautiful weather and bright colors that come with the spri
 
 ## Related Posts
 
-- [beauty trends that guys love](https://fashion.allwomenstalk.com/beauty-and-style-trends-that-guys-hate/)
-- [fall 2013 trends](https://beauty.allwomenstalk.com/fierce-fall-beauty-trends/)
-- [emitaz height](https://streetstyle.allwomenstalk.com/inspirational-street-style-ideas-for-spring/)
-- [were combat boots popular in the 90s](https://fashion.allwomenstalk.com/90s-trends-that-need-to-make-a-comeback/)
-- [latest fashion blogs](https://fashion.allwomenstalk.com/trends-that-fashion-bloggers-love/)
-- [hollywood trends](https://fashion.allwomenstalk.com/fashion-trends-inspired-by-hollywood-to-try-this-fall/)
 - [paris riche stylo smoky endless](https://makeup.allwomenstalk.com/spring-makeup-trends/)
+- [fall 2013 trends](https://beauty.allwomenstalk.com/fierce-fall-beauty-trends/)
+- [hollywood trends](https://fashion.allwomenstalk.com/fashion-trends-inspired-by-hollywood-to-try-this-fall/)
+- [were combat boots popular in the 90s](https://fashion.allwomenstalk.com/90s-trends-that-need-to-make-a-comeback/)
+- [beauty trends that guys love](https://fashion.allwomenstalk.com/beauty-and-style-trends-that-guys-hate/)
 - [site:fashion.allwomenstalk.com](https://fashion.allwomenstalk.com/eyeglass-trends-for/)
+- [latest fashion blogs](https://fashion.allwomenstalk.com/trends-that-fashion-bloggers-love/)
+- [emitaz height](https://streetstyle.allwomenstalk.com/inspirational-street-style-ideas-for-spring/)
 - [emitaz height](https://fashion.allwomenstalk.com/denim-trends-to-try-right-now/)
 - [trends from the 50s](https://fashion.allwomenstalk.com/gorgeous-trends-from-the-50s-we-should-revisit/)
 - [7 Stylish Spring Fashion Trends ...](https://fashion.allwomenstalk.com/stylish-spring-fashion-trends/)
