@@ -52,15 +52,15 @@ I have a shoe obsession, so it is always exciting to see which new styles are up
 
 ## Related Posts
 
-- [winter trend shoes](https://shoes.allwomenstalk.com/shoe-trends-to-take-note-of-this-winter/)
+- [designer shoes that look like vans](https://shoes.allwomenstalk.com/fabulous-designer-shoe-collaborations/)
+- [what to do with new shoes](https://shoes.allwomenstalk.com/tips-for-wearing-in-new-shoes/)
 - [popular shoes for girls](https://shoes.allwomenstalk.com/best-workout-shoes-for-teenage-girls/)
 - [tall boots for fall](https://shoes.allwomenstalk.com/tantalizing-tall-fall-boots/)
-- [designer shoes that look like vans](https://shoes.allwomenstalk.com/fabulous-designer-shoe-collaborations/)
+- [shoes for college student](https://shoes.allwomenstalk.com/comfy-shoes-for-college-students/)
+- [new cool sneakers](https://shoes.allwomenstalk.com/cool-sneakers-you-need-now/)
 - [10 types of shoes](https://shoes.allwomenstalk.com/types-of-shoes-you-need-in-your-closet/)
 - [board names on pinterest](https://shoes.allwomenstalk.com/best-pinterest-shoe-boards/)
-- [what to do with new shoes](https://shoes.allwomenstalk.com/tips-for-wearing-in-new-shoes/)
-- [new cool sneakers](https://shoes.allwomenstalk.com/cool-sneakers-you-need-now/)
-- [shoes for college student](https://shoes.allwomenstalk.com/comfy-shoes-for-college-students/)
+- [winter trend shoes](https://shoes.allwomenstalk.com/shoe-trends-to-take-note-of-this-winter/)
 - [large size womens dress shoes](https://fashion.allwomenstalk.com/gorgeous-shoes-for-plus-size-ladies/)
 - [7 Fab  Chic Booties for Fall ...](https://fashion.allwomenstalk.com/fab-chic-booties-for-fall/)
 - [7 Great Dresses to Wear on a Date ...](https://allwomenstalk.com/7-great-dresses-to-wear-on-a-date/)

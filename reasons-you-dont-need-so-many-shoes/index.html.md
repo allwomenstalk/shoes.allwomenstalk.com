@@ -42,16 +42,16 @@ It's always fun to have a pair of frivolous shoes, but don't waste your money on
 
 ## Related Posts
 
-- [sky high shoes](https://shoes.allwomenstalk.com/pairs-of-sky-high-stilettos-that-will-go-with-anything-in-your-closet/)
-- [what to wear with floral print shoes](https://shoes.allwomenstalk.com/floral-high-heels-to-wear-to-your-next-event/)
-- [running shoes for pavement](https://fitness.allwomenstalk.com/fantastic-pairs-of-running-shoes-that-will-make-you-want-to-hit-the-pavement/)
-- [darcy booties](https://shoes.allwomenstalk.com/fifteen-shades-of-beige-the-best-brown-boots-this-fall/)
-- [cowboy boots with angel wings](https://fashion.allwomenstalk.com/pairs-of-cowboy-boots-to-wake-up-your-country-side/)
 - [how to repair leather shoe scuffs](https://shoes.allwomenstalk.com/ways-to-remove-scuff-marks-from-shoes/)
 - [new birkenstock trend](https://shoes.allwomenstalk.com/reasons-why-the-birkenstock-trend-is-awesome/)
 - [floral pattern shoes for ladies](https://shoes.allwomenstalk.com/floral-shoes-for-pretty-feet-in-all-seasons/)
-- [vegan chic shoes](https://shoes.allwomenstalk.com/vegan-footwear-brands-youll-love/)
+- [cowboy boots with angel wings](https://fashion.allwomenstalk.com/pairs-of-cowboy-boots-to-wake-up-your-country-side/)
+- [sky high shoes](https://shoes.allwomenstalk.com/pairs-of-sky-high-stilettos-that-will-go-with-anything-in-your-closet/)
+- [running shoes for pavement](https://fitness.allwomenstalk.com/fantastic-pairs-of-running-shoes-that-will-make-you-want-to-hit-the-pavement/)
+- [what to wear with floral print shoes](https://shoes.allwomenstalk.com/floral-high-heels-to-wear-to-your-next-event/)
 - [espadrilles about you](https://shoes.allwomenstalk.com/perfectly-pretty-wedges-and-espadrilles-from-bluefly-com/)
+- [darcy booties](https://shoes.allwomenstalk.com/fifteen-shades-of-beige-the-best-brown-boots-this-fall/)
+- [vegan chic shoes](https://shoes.allwomenstalk.com/vegan-footwear-brands-youll-love/)
 - [7 Things You Dont Need to Pack in Your Suitcase .....](https://travel.allwomenstalk.com/things-you-dont-need-to-pack-in-your-suitcase/)
 - [7 Reasons to Wear What You Want in Summer ...](https://fashion.allwomenstalk.com/reasons-to-wear-what-you-want-in-summer/)
 

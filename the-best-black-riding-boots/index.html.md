@@ -102,16 +102,16 @@ If you’re in the market for a pair of classy riding boots, you’ve got 11 gre
 
 ## Related Posts
 
-- [brown womens ankle boots](https://shoes.allwomenstalk.com/best-brown-ankle-boots/)
-- [new years eve heels](https://shoes.allwomenstalk.com/cute-flats-for-new-years-eve-and-beyond/)
-- [health benefits of leather shoes](https://shoes.allwomenstalk.com/benefits-of-natural-leather-to-consider-when-buying-footwear/)
-- [d orsay sandals](https://shoes.allwomenstalk.com/best-dorsay-flats/)
-- [best exercise sneakers](https://shoes.allwomenstalk.com/best-fitness-shoes-to-ask-for-this-christmas/)
 - [can you wear ankle boots in the summer](https://shoes.allwomenstalk.com/ways-to-make-ankle-boots-work-for-you/)
-- [different types of shoes for ladies](https://shoes.allwomenstalk.com/essential-types-of-shoes-all-women-should-have/)
-- [leather smoking shoes](https://shoes.allwomenstalk.com/the-best-smoking-slippers/)
+- [new years eve heels](https://shoes.allwomenstalk.com/cute-flats-for-new-years-eve-and-beyond/)
 - [stylish runners](https://shoes.allwomenstalk.com/best-stylish-running-sneakers/)
+- [leather smoking shoes](https://shoes.allwomenstalk.com/the-best-smoking-slippers/)
+- [different types of shoes for ladies](https://shoes.allwomenstalk.com/essential-types-of-shoes-all-women-should-have/)
 - [menswear inspired shoes](https://shoes.allwomenstalk.com/menswear-style-shoes-you-can-wear-with-your-ladylike-outfits/)
+- [d orsay sandals](https://shoes.allwomenstalk.com/best-dorsay-flats/)
+- [health benefits of leather shoes](https://shoes.allwomenstalk.com/benefits-of-natural-leather-to-consider-when-buying-footwear/)
+- [brown womens ankle boots](https://shoes.allwomenstalk.com/best-brown-ankle-boots/)
+- [best exercise sneakers](https://shoes.allwomenstalk.com/best-fitness-shoes-to-ask-for-this-christmas/)
 - [10 Stylish Ankle Boots ...](https://shoes.allwomenstalk.com/stylish-ankle-boots/)
 - [11 Stylish Black versus Platform Shoes ...](https://shoes.allwomenstalk.com/stylish-black-versus-platform-shoes/)
 

@@ -56,16 +56,16 @@ Burlesque shoes are always outlandish. They either feature ridiculous heels, OTT
 
 ## Related Posts
 
-- [most comfy sandals](https://shoes.allwomenstalk.com/fashionable-alternatives-to-heels-for-day-and-night/)
-- [what shoes say about a woman](https://shoes.allwomenstalk.com/things-your-shoes-say-about-you/)
-- [comfy festival shoes](https://shoes.allwomenstalk.com/comfortable-shoes-for-a-music-festival-that-are-also-stylish/)
-- [tory burch eddie flats](https://shoes.allwomenstalk.com/comfortable-and-stylish-flats-for-spring/)
-- [budget footwear](https://shoes.allwomenstalk.com/ways-to-buy-shoes-on-a-budget-and-look-like-youre-wearing-couture/)
-- [women heels types](https://shoes.allwomenstalk.com/different-heel-types-on-womens-shoes/)
-- [is manolo blahnik comfortable](https://shoes.allwomenstalk.com/shoes-for-wide-feet-that-are-comfortable-and-hot/)
-- [best shoes for flying an airplane](https://shoes.allwomenstalk.com/of-the-best-shoes-for-flying-and-staying-comfortable/)
-- [quirky flat shoes](https://shoes.allwomenstalk.com/eclectic-shoes-to-wear-when-you-are-in-a-quirky-mood/)
 - [shoe.shops](https://shoes.allwomenstalk.com/boutique-shoe-stores-in-london-you-can-visit/)
+- [most comfy sandals](https://shoes.allwomenstalk.com/fashionable-alternatives-to-heels-for-day-and-night/)
+- [quirky flat shoes](https://shoes.allwomenstalk.com/eclectic-shoes-to-wear-when-you-are-in-a-quirky-mood/)
+- [what shoes say about a woman](https://shoes.allwomenstalk.com/things-your-shoes-say-about-you/)
+- [budget footwear](https://shoes.allwomenstalk.com/ways-to-buy-shoes-on-a-budget-and-look-like-youre-wearing-couture/)
+- [tory burch eddie flats](https://shoes.allwomenstalk.com/comfortable-and-stylish-flats-for-spring/)
+- [women heels types](https://shoes.allwomenstalk.com/different-heel-types-on-womens-shoes/)
+- [best shoes for flying an airplane](https://shoes.allwomenstalk.com/of-the-best-shoes-for-flying-and-staying-comfortable/)
+- [comfy festival shoes](https://shoes.allwomenstalk.com/comfortable-shoes-for-a-music-festival-that-are-also-stylish/)
+- [is manolo blahnik comfortable](https://shoes.allwomenstalk.com/shoes-for-wide-feet-that-are-comfortable-and-hot/)
 - [7 Stylish Sneakers ...](https://shoes.allwomenstalk.com/7-stylish-sneakers/)
 - [7 Heeled Sandals ...](https://shoes.allwomenstalk.com/heeled-sandals/)
 

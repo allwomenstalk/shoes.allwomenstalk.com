@@ -56,16 +56,16 @@ I’ve loved a good pair of wedges for years, but I’m just discovering espadri
 
 ## Related Posts
 
-- [running shoes for pavement](https://fitness.allwomenstalk.com/fantastic-pairs-of-running-shoes-that-will-make-you-want-to-hit-the-pavement/)
-- [aldocom](https://fashion.allwomenstalk.com/affordable-accessories-from-aldo-com/)
-- [cowboy boots with angel wings](https://fashion.allwomenstalk.com/pairs-of-cowboy-boots-to-wake-up-your-country-side/)
-- [what to wear with floral print shoes](https://shoes.allwomenstalk.com/floral-high-heels-to-wear-to-your-next-event/)
-- [wear heels without pain](https://fashion.allwomenstalk.com/the-secret-to-wearing-high-heels-without-any-pain/)
 - [new birkenstock trend](https://shoes.allwomenstalk.com/reasons-why-the-birkenstock-trend-is-awesome/)
+- [cowboy boots with angel wings](https://fashion.allwomenstalk.com/pairs-of-cowboy-boots-to-wake-up-your-country-side/)
+- [vegan chic shoes](https://shoes.allwomenstalk.com/vegan-footwear-brands-youll-love/)
+- [wear heels without pain](https://fashion.allwomenstalk.com/the-secret-to-wearing-high-heels-without-any-pain/)
+- [boots street style](https://streetstyle.allwomenstalk.com/street-style-outfits-with-boots-for-the-fall/)
+- [running shoes for pavement](https://fitness.allwomenstalk.com/fantastic-pairs-of-running-shoes-that-will-make-you-want-to-hit-the-pavement/)
+- [what to wear with floral print shoes](https://shoes.allwomenstalk.com/floral-high-heels-to-wear-to-your-next-event/)
 - [adorable shoes](https://parenting.allwomenstalk.com/adorable-pairs-of-baby-shoes-youll-want-for-your-little-one/)
 - [darcy booties](https://shoes.allwomenstalk.com/fifteen-shades-of-beige-the-best-brown-boots-this-fall/)
-- [boots street style](https://streetstyle.allwomenstalk.com/street-style-outfits-with-boots-for-the-fall/)
-- [vegan chic shoes](https://shoes.allwomenstalk.com/vegan-footwear-brands-youll-love/)
+- [aldocom](https://fashion.allwomenstalk.com/affordable-accessories-from-aldo-com/)
 - [20 Stylish Blue Pierre Hardy High Heels ...](https://shoes.allwomenstalk.com/stylish-blue-pierre-hardy-high-heels/)
 - [7 Pretty Espadrilles ...](https://shoes.allwomenstalk.com/7-pretty-espadrilles/)
 

@@ -62,16 +62,16 @@ With these 8 oxford booties on your feet, you’ll be the town trendsetter. Whic
 
 ## Related Posts
 
-- [elegant white shoes](https://shoes.allwomenstalk.com/elegant-black-and-white-shoes/)
-- [manolo blahniks](https://shoes.allwomenstalk.com/expensive-but-beautiful-manolo-blahnik-shoes/)
-- [stuart weitzman bridal](https://shoes.allwomenstalk.com/elegant-bridal-and-evening-shoes-from-stuart-weitzman/)
 - [dior flower heels](https://shoes.allwomenstalk.com/pretty-high-heel-party-shoes-to-rock/)
-- [orsay leather jacket](https://shoes.allwomenstalk.com/best-dorsay-pumps/)
-- [minnie slang](https://shoes.allwomenstalk.com/stunning-shoes-by-milly-j-designer-extraordinaire/)
-- [lk bennett shilo shoes](https://shoes.allwomenstalk.com/best-nude-pumps/)
-- [capelta](https://shoes.allwomenstalk.com/daring-black-gladiator-boots/)
 - [fun floral heels](https://shoes.allwomenstalk.com/gorgeous-floral-patterned-heels-for-spring/)
+- [capelta](https://shoes.allwomenstalk.com/daring-black-gladiator-boots/)
 - [womens metallic sandals](https://shoes.allwomenstalk.com/best-metallic-sandals/)
+- [orsay leather jacket](https://shoes.allwomenstalk.com/best-dorsay-pumps/)
+- [manolo blahniks](https://shoes.allwomenstalk.com/expensive-but-beautiful-manolo-blahnik-shoes/)
+- [lk bennett shilo shoes](https://shoes.allwomenstalk.com/best-nude-pumps/)
+- [minnie slang](https://shoes.allwomenstalk.com/stunning-shoes-by-milly-j-designer-extraordinaire/)
+- [stuart weitzman bridal](https://shoes.allwomenstalk.com/elegant-bridal-and-evening-shoes-from-stuart-weitzman/)
+- [elegant white shoes](https://shoes.allwomenstalk.com/elegant-black-and-white-shoes/)
 - [4 Gorgeous Red Aperla Boots and Booties ...](https://shoes.allwomenstalk.com/gorgeous-red-aperlai-boots-and-booties/)
 - [8 Fabulous Brown Pollini Boots and Booties ...](https://shoes.allwomenstalk.com/fabulous-brown-pollini-boots-and-booties/)
 

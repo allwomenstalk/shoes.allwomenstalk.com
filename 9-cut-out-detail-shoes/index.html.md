@@ -72,15 +72,15 @@ Top Photo Credit: [bitsandbobbins](https://www.flickr.com/photos/pintuck/4260133
 ## Related Posts
 
 - [7 Summer Sandals under 50 ...](https://shoes.allwomenstalk.com/7-summer-sandals-under-50/)
-- [8 Ankle Strap Shoes ...](https://shoes.allwomenstalk.com/ankle-strap-shoes/)
+- [shoes like irregular choice](https://shoes.allwomenstalk.com/8-irresistible-shoes-by-irregular-choice/)
+- [romantic instagram couple goals](https://shoes.allwomenstalk.com/8-shoes-that-make-me-drool/)
+- [7 Gorgeous Shoes by Chelsea Crew ...](https://shoes.allwomenstalk.com/gorgeous-shoes-by-chelsea-crew/)
 - [boots with studs](https://shoes.allwomenstalk.com/8-hottest-studded-boots/)
+- [7 Steps to Walking in Killer Heels ...](https://shoes.allwomenstalk.com/7-steps-to-walking-in-killer-heels/)
+- [8 Hot High Heels That Make Me Think of Spring ...](https://shoes.allwomenstalk.com/8-hot-high-heels-that-make-me-think-of-spring/)
+- [8 Ankle Strap Shoes ...](https://shoes.allwomenstalk.com/ankle-strap-shoes/)
 - [fabshoes](https://shoes.allwomenstalk.com/fab-shoes-with-fringe/)
 - [flatforms shoes](https://shoes.allwomenstalk.com/flatform-shoes/)
-- [shoes like irregular choice](https://shoes.allwomenstalk.com/8-irresistible-shoes-by-irregular-choice/)
-- [7 Steps to Walking in Killer Heels ...](https://shoes.allwomenstalk.com/7-steps-to-walking-in-killer-heels/)
-- [7 Gorgeous Shoes by Chelsea Crew ...](https://shoes.allwomenstalk.com/gorgeous-shoes-by-chelsea-crew/)
-- [8 Hot High Heels That Make Me Think of Spring ...](https://shoes.allwomenstalk.com/8-hot-high-heels-that-make-me-think-of-spring/)
-- [romantic instagram couple goals](https://shoes.allwomenstalk.com/8-shoes-that-make-me-drool/)
 - [7 Bow-Detail Shoes ...](https://shoes.allwomenstalk.com/7-bow-detail-shoes/)
 - [7 Woven-Detail Shoes ...](https://shoes.allwomenstalk.com/woven-detail-shoes/)
 

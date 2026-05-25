@@ -63,16 +63,16 @@ Top Image Source: [next-trend.com](https://goo.gl/vkmj55)
 
 ## Related Posts
 
-- [all brand of shoes](https://shoes.allwomenstalk.com/shoe-brands-that-give-back/)
-- [emitaz age](https://shoes.allwomenstalk.com/adorable-shoes-to-wear-to-a-date-this-fall/)
 - [winter trend shoes](https://shoes.allwomenstalk.com/shoe-trends-to-take-note-of-this-winter/)
-- [new cool sneakers](https://shoes.allwomenstalk.com/cool-sneakers-you-need-now/)
-- [board names on pinterest](https://shoes.allwomenstalk.com/best-pinterest-shoe-boards/)
-- [what to do with new shoes](https://shoes.allwomenstalk.com/tips-for-wearing-in-new-shoes/)
-- [10 types of shoes](https://shoes.allwomenstalk.com/types-of-shoes-you-need-in-your-closet/)
 - [tall boots for fall](https://shoes.allwomenstalk.com/tantalizing-tall-fall-boots/)
-- [designer shoes that look like vans](https://shoes.allwomenstalk.com/fabulous-designer-shoe-collaborations/)
 - [large size womens dress shoes](https://fashion.allwomenstalk.com/gorgeous-shoes-for-plus-size-ladies/)
+- [10 types of shoes](https://shoes.allwomenstalk.com/types-of-shoes-you-need-in-your-closet/)
+- [what to do with new shoes](https://shoes.allwomenstalk.com/tips-for-wearing-in-new-shoes/)
+- [new cool sneakers](https://shoes.allwomenstalk.com/cool-sneakers-you-need-now/)
+- [designer shoes that look like vans](https://shoes.allwomenstalk.com/fabulous-designer-shoe-collaborations/)
+- [emitaz age](https://shoes.allwomenstalk.com/adorable-shoes-to-wear-to-a-date-this-fall/)
+- [board names on pinterest](https://shoes.allwomenstalk.com/best-pinterest-shoe-boards/)
+- [all brand of shoes](https://shoes.allwomenstalk.com/shoe-brands-that-give-back/)
 - [7 Ways to Glam up Work Attire ...](https://fashion.allwomenstalk.com/ways-to-glam-up-work-attire/)
 - [7 Pretty Espadrilles ...](https://shoes.allwomenstalk.com/7-pretty-espadrilles/)
 

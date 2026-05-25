@@ -150,16 +150,16 @@ So, which is your fave? Which one would you wear? For me, ALL OF THEM!
 
 ## Related Posts
 
-- [jimmy choo lace up boots](https://shoes.allwomenstalk.com/hottest-jimmy-choo-boots-on-sale-right-now/)
-- [big feet women](https://shoes.allwomenstalk.com/this-summers-sexiest-sandals-ever-for-girls-with-big-feet/)
-- [best shoes for prom](https://shoes.allwomenstalk.com/put-your-best-foot-forward-with-the-hot-prom-shoes-of/)
-- [cinderella flat shoes](https://shoes.allwomenstalk.com/cinderella-shoes-for-girls-who-are-going-to-the-ball/)
-- [zappos tuxedo shoes](https://shoes.allwomenstalk.com/hottest-white-shoes-its-okay-to-wear-now/)
-- [high heels to flats](https://shoes.allwomenstalk.com/perfect-first-pair-of-heels-to-buy-for-girls-who-always-wear-flats/)
-- [shoes 101](https://shoes.allwomenstalk.com/what-does-your-shoe-style-say-about-you/)
 - [little girl high heel shoes](https://shoes.allwomenstalk.com/high-heels-for-short-girls-who-dont-want-to-fall-down/)
-- [christmas high heels](https://shoes.allwomenstalk.com/hottest-heels-to-wear-to-christmas-and-new-year-parties/)
+- [shoes 101](https://shoes.allwomenstalk.com/what-does-your-shoe-style-say-about-you/)
+- [zappos tuxedo shoes](https://shoes.allwomenstalk.com/hottest-white-shoes-its-okay-to-wear-now/)
+- [best shoes for prom](https://shoes.allwomenstalk.com/put-your-best-foot-forward-with-the-hot-prom-shoes-of/)
 - [fall designer shoes](https://shoes.allwomenstalk.com/these-are-the-must-have-shoe-styles-for-this-fall/)
+- [christmas high heels](https://shoes.allwomenstalk.com/hottest-heels-to-wear-to-christmas-and-new-year-parties/)
+- [jimmy choo lace up boots](https://shoes.allwomenstalk.com/hottest-jimmy-choo-boots-on-sale-right-now/)
+- [cinderella flat shoes](https://shoes.allwomenstalk.com/cinderella-shoes-for-girls-who-are-going-to-the-ball/)
+- [big feet women](https://shoes.allwomenstalk.com/this-summers-sexiest-sandals-ever-for-girls-with-big-feet/)
+- [high heels to flats](https://shoes.allwomenstalk.com/perfect-first-pair-of-heels-to-buy-for-girls-who-always-wear-flats/)
 - [5 Gorgeous Brown Christian Louboutin High Heels .....](https://shoes.allwomenstalk.com/gorgeous-brown-christian-louboutin-high-heels/)
 - [8 Gorgeous Shoes by Seychelles ...](https://shoes.allwomenstalk.com/8-gorgeous-shoes-by-seychelles/)
 

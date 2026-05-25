@@ -56,16 +56,16 @@ These 7 “Sleeping Beauty” inspired shoes will keep your toes regal. Which on
 
 ## Related Posts
 
-- [bodycon dress with tights and boots](https://shoes.allwomenstalk.com/beautiful-vegan-booties/)
-- [t strap designer shoes](https://shoes.allwomenstalk.com/stylish-t-strap-shoes/)
-- [shoes with cat design](https://shoes.allwomenstalk.com/cool-cat-shoes/)
-- [bow booties](https://shoes.allwomenstalk.com/beautiful-bow-boots/)
-- [very short heels](https://shoes.allwomenstalk.com/new-season-low-heeled-shoes/)
-- [valentines day shoe](https://shoes.allwomenstalk.com/sweet-shoes-for-valentines-day/)
-- [barefoot shoes for sports](https://shoes.allwomenstalk.com/best-barefoot-shoes/)
 - [fabulous flats](https://shoes.allwomenstalk.com/fabulous-flats-under-20/)
-- [famous women shoes](https://shoes.allwomenstalk.com/most-famous-shoe-designers/)
+- [barefoot shoes for sports](https://shoes.allwomenstalk.com/best-barefoot-shoes/)
+- [bow booties](https://shoes.allwomenstalk.com/beautiful-bow-boots/)
+- [shoes with cat design](https://shoes.allwomenstalk.com/cool-cat-shoes/)
+- [t strap designer shoes](https://shoes.allwomenstalk.com/stylish-t-strap-shoes/)
+- [valentines day shoe](https://shoes.allwomenstalk.com/sweet-shoes-for-valentines-day/)
+- [bodycon dress with tights and boots](https://shoes.allwomenstalk.com/beautiful-vegan-booties/)
 - [cute oxford flats](https://shoes.allwomenstalk.com/fabulous-oxford-flats-under-30/)
+- [very short heels](https://shoes.allwomenstalk.com/new-season-low-heeled-shoes/)
+- [famous women shoes](https://shoes.allwomenstalk.com/most-famous-shoe-designers/)
 - [7 Cute Shoes by Chinese Laundry ...](https://shoes.allwomenstalk.com/7-cute-shoes-by-chinese-laundry/)
 - [7 Cute Shoes by Poetic License ...](https://shoes.allwomenstalk.com/7-cute-shoes-by-poetic-license/)
 

@@ -79,16 +79,16 @@ Top Image Source: [The Cherry Blossom Girl](http://thecherryblossomgirl.com/jump
 
 ## Related Posts
 
-- [fall shoe trends](https://shoes.allwomenstalk.com/fabulous-fall-shoe-trends/)
-- [8 Chic and Chunky Boots Youve Got to Have ...](https://shoes.allwomenstalk.com/chic-and-chunky-boots-youve-got-to-have/)
-- [8 Practical Tips for Choosing Kids Shoes ...](https://parenting.allwomenstalk.com/practical-tips-for-choosing-kids-shoes/)
-- [7 Party Perfect Shoes under 100 ...](https://shoes.allwomenstalk.com/party-perfect-shoes-under-100/)
-- [7 Types of Shoes Every Woman Must Own ...](https://fashion.allwomenstalk.com/types-of-shoes-every-woman-must-own/)
-- [how to choose shoes for a dress](https://shoes.allwomenstalk.com/tips-on-how-to-choose-the-perfect-shoes-for-a-dress/)
-- [7 Fabulous Pairs of Beach Flip Flops ...](https://shoes.allwomenstalk.com/fabulous-pairs-of-beach-flip-flops/)
 - [7 Incredibly Stylish Rugged Wedge Booties for Fall...](https://shoes.allwomenstalk.com/incredibly-stylish-rugged-wedge-booties-for-fall/)
+- [8 Chic and Chunky Boots Youve Got to Have ...](https://shoes.allwomenstalk.com/chic-and-chunky-boots-youve-got-to-have/)
+- [7 Types of Shoes Every Woman Must Own ...](https://fashion.allwomenstalk.com/types-of-shoes-every-woman-must-own/)
+- [fall shoe trends](https://shoes.allwomenstalk.com/fabulous-fall-shoe-trends/)
+- [8 Practical Tips for Choosing Kids Shoes ...](https://parenting.allwomenstalk.com/practical-tips-for-choosing-kids-shoes/)
+- [how to choose shoes for a dress](https://shoes.allwomenstalk.com/tips-on-how-to-choose-the-perfect-shoes-for-a-dress/)
 - [affordable shoes for women](https://shoes.allwomenstalk.com/affordable-shoes-that-i-love/)
+- [7 Fabulous Pairs of Beach Flip Flops ...](https://shoes.allwomenstalk.com/fabulous-pairs-of-beach-flip-flops/)
 - [9 Fashionable and Affordable Flat Boots ...](https://shoes.allwomenstalk.com/fashionable-and-affordable-flat-boots/)
+- [7 Party Perfect Shoes under 100 ...](https://shoes.allwomenstalk.com/party-perfect-shoes-under-100/)
 - [7 Stylish Sneakers ...](https://shoes.allwomenstalk.com/7-stylish-sneakers/)
 - [8 Stylish Suede Shoes ...](https://shoes.allwomenstalk.com/8-stylish-suede-shoes/)
 

@@ -56,16 +56,16 @@ For those of you who are plagued by foot pain, you will be happy to know that al
 
 ## Related Posts
 
-- [shoes from burlesque](https://shoes.allwomenstalk.com/burlesque-inspired-shoes-that-will-make-you-feel-sexy/)
-- [what shoes say about a woman](https://shoes.allwomenstalk.com/things-your-shoes-say-about-you/)
-- [is manolo blahnik comfortable](https://shoes.allwomenstalk.com/shoes-for-wide-feet-that-are-comfortable-and-hot/)
 - [best shoes for flying an airplane](https://shoes.allwomenstalk.com/of-the-best-shoes-for-flying-and-staying-comfortable/)
-- [budget footwear](https://shoes.allwomenstalk.com/ways-to-buy-shoes-on-a-budget-and-look-like-youre-wearing-couture/)
-- [tory burch eddie flats](https://shoes.allwomenstalk.com/comfortable-and-stylish-flats-for-spring/)
+- [shoes from burlesque](https://shoes.allwomenstalk.com/burlesque-inspired-shoes-that-will-make-you-feel-sexy/)
 - [comfy festival shoes](https://shoes.allwomenstalk.com/comfortable-shoes-for-a-music-festival-that-are-also-stylish/)
+- [what shoes say about a woman](https://shoes.allwomenstalk.com/things-your-shoes-say-about-you/)
+- [budget footwear](https://shoes.allwomenstalk.com/ways-to-buy-shoes-on-a-budget-and-look-like-youre-wearing-couture/)
+- [most comfy sandals](https://shoes.allwomenstalk.com/fashionable-alternatives-to-heels-for-day-and-night/)
+- [is manolo blahnik comfortable](https://shoes.allwomenstalk.com/shoes-for-wide-feet-that-are-comfortable-and-hot/)
+- [tory burch eddie flats](https://shoes.allwomenstalk.com/comfortable-and-stylish-flats-for-spring/)
 - [how to keep your feet dry in rain](https://shoes.allwomenstalk.com/rain-boots-that-will-keep-your-kids-feet-dry-when-they-splash-in-rain-puddles/)
 - [types if shoes](https://shoes.allwomenstalk.com/styles-of-shoes-from-around-the-world/)
-- [most comfy sandals](https://shoes.allwomenstalk.com/fashionable-alternatives-to-heels-for-day-and-night/)
 - [7 Stylish Sneakers ...](https://shoes.allwomenstalk.com/7-stylish-sneakers/)
 - [7 Fashionable Black Flat Shoes for Every Day ...](https://shoes.allwomenstalk.com/fashionable-black-flat-shoes-for-every-day/)
 

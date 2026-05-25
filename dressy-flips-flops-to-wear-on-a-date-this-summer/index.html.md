@@ -56,16 +56,16 @@ And there you have it- dressy flip flops to wear on a date this summer! What’s
 
 ## Related Posts
 
-- [street style maxi dress](https://streetstyle.allwomenstalk.com/maxi-street-style-looks/)
-- [beach must haves for women](https://lifestyle.allwomenstalk.com/wonderful-beach-essentials-every-girl-needs-this-summer/)
-- [light weight summer sweater](https://fashion.allwomenstalk.com/summer-sweaters-that-are-light-enough-to-wear-to-the-beach/)
-- [flamingo accessory](https://fashion.allwomenstalk.com/quirky-flamingo-fashion-accessories-for-your-summer-wardrobe/)
-- [hot pyjamas](https://fashion.allwomenstalk.com/comfy-pajamas-that-will-help-you-survive-hot-summer-nights/)
 - [clothes for internship](https://fashion.allwomenstalk.com/key-wardrobe-pieces-for-your-summer-internship/)
-- [lightweight sundresses](https://fashion.allwomenstalk.com/lightweight-dresses-youll-love-this-summer/)
-- [beautiful beach dresses](https://fashion.allwomenstalk.com/lovely-beach-dresses-to-wear-this-summer/)
-- [white dresses under 50](https://fashion.allwomenstalk.com/beautifully-breezy-summer-dresses-under-50/)
+- [hot pyjamas](https://fashion.allwomenstalk.com/comfy-pajamas-that-will-help-you-survive-hot-summer-nights/)
 - [lemon yellow and blue combination](https://fashion.allwomenstalk.com/summer-approved-color-combinations-for-your-wardrobe/)
+- [light weight summer sweater](https://fashion.allwomenstalk.com/summer-sweaters-that-are-light-enough-to-wear-to-the-beach/)
+- [beach must haves for women](https://lifestyle.allwomenstalk.com/wonderful-beach-essentials-every-girl-needs-this-summer/)
+- [lightweight sundresses](https://fashion.allwomenstalk.com/lightweight-dresses-youll-love-this-summer/)
+- [white dresses under 50](https://fashion.allwomenstalk.com/beautifully-breezy-summer-dresses-under-50/)
+- [flamingo accessory](https://fashion.allwomenstalk.com/quirky-flamingo-fashion-accessories-for-your-summer-wardrobe/)
+- [beautiful beach dresses](https://fashion.allwomenstalk.com/lovely-beach-dresses-to-wear-this-summer/)
+- [street style maxi dress](https://streetstyle.allwomenstalk.com/maxi-street-style-looks/)
 - [7 Shoes to Wear in Warm Weather ...](https://shoes.allwomenstalk.com/shoes-to-wear-in-warm-weather/)
 - [7 Cute Things to Wear on a Date ...](https://allwomenstalk.com/7-cute-things-to-wear-on-a-date/)
 

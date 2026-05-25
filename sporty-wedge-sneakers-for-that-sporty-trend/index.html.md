@@ -65,16 +65,16 @@ Top Image Source: [pinterest.com](https://www.pinterest.com/pin/9844594182476438
 
 ## Related Posts
 
-- [all brand of shoes](https://shoes.allwomenstalk.com/shoe-brands-that-give-back/)
-- [emitaz age](https://shoes.allwomenstalk.com/adorable-shoes-to-wear-to-a-date-this-fall/)
-- [new cool sneakers](https://shoes.allwomenstalk.com/cool-sneakers-you-need-now/)
-- [bow flats](https://shoes.allwomenstalk.com/adorable-bow-flats-for-summer/)
-- [10 types of shoes](https://shoes.allwomenstalk.com/types-of-shoes-you-need-in-your-closet/)
-- [party shoes for womens](https://shoes.allwomenstalk.com/gorgeous-shoes-for-a-fab-garden-party/)
+- [wedge summer heels](https://shoes.allwomenstalk.com/statement-wedge-shoes-to-splurge-on-this-summer/)
 - [dance heels for everyday wear](https://shoes.allwomenstalk.com/comfy-heels-to-wear-to-the-office/)
 - [what to do with new shoes](https://shoes.allwomenstalk.com/tips-for-wearing-in-new-shoes/)
+- [new cool sneakers](https://shoes.allwomenstalk.com/cool-sneakers-you-need-now/)
+- [all brand of shoes](https://shoes.allwomenstalk.com/shoe-brands-that-give-back/)
+- [emitaz age](https://shoes.allwomenstalk.com/adorable-shoes-to-wear-to-a-date-this-fall/)
 - [socks with heels](https://shoes.allwomenstalk.com/cute-socks-to-show-off-in-high-heel-shoes/)
-- [wedge summer heels](https://shoes.allwomenstalk.com/statement-wedge-shoes-to-splurge-on-this-summer/)
+- [10 types of shoes](https://shoes.allwomenstalk.com/types-of-shoes-you-need-in-your-closet/)
+- [party shoes for womens](https://shoes.allwomenstalk.com/gorgeous-shoes-for-a-fab-garden-party/)
+- [bow flats](https://shoes.allwomenstalk.com/adorable-bow-flats-for-summer/)
 - [7 Stylish Sneakers ...](https://shoes.allwomenstalk.com/7-stylish-sneakers/)
 - [7 Woven-Detail Shoes ...](https://shoes.allwomenstalk.com/woven-detail-shoes/)
 

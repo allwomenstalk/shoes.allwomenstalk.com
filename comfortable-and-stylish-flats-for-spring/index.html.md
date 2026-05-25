@@ -64,16 +64,16 @@ Written by Lorna Burford of [TheFashionSupernova.com](http://thefashionsupernova
 
 ## Related Posts
 
+- [what shoes say about a woman](https://shoes.allwomenstalk.com/things-your-shoes-say-about-you/)
+- [comfy festival shoes](https://shoes.allwomenstalk.com/comfortable-shoes-for-a-music-festival-that-are-also-stylish/)
 - [shoe.shops](https://shoes.allwomenstalk.com/boutique-shoe-stores-in-london-you-can-visit/)
-- [women heels types](https://shoes.allwomenstalk.com/different-heel-types-on-womens-shoes/)
+- [how to make high heels more comfortable](https://shoes.allwomenstalk.com/ways-to-make-high-heels-more-comfortable/)
+- [is manolo blahnik comfortable](https://shoes.allwomenstalk.com/shoes-for-wide-feet-that-are-comfortable-and-hot/)
 - [budget footwear](https://shoes.allwomenstalk.com/ways-to-buy-shoes-on-a-budget-and-look-like-youre-wearing-couture/)
 - [most comfy sandals](https://shoes.allwomenstalk.com/fashionable-alternatives-to-heels-for-day-and-night/)
-- [how to make high heels more comfortable](https://shoes.allwomenstalk.com/ways-to-make-high-heels-more-comfortable/)
-- [quirky flat shoes](https://shoes.allwomenstalk.com/eclectic-shoes-to-wear-when-you-are-in-a-quirky-mood/)
-- [comfy festival shoes](https://shoes.allwomenstalk.com/comfortable-shoes-for-a-music-festival-that-are-also-stylish/)
+- [women heels types](https://shoes.allwomenstalk.com/different-heel-types-on-womens-shoes/)
 - [colorful rainboots](https://shoes.allwomenstalk.com/colorful-rainboots-for-april-showers/)
-- [what shoes say about a woman](https://shoes.allwomenstalk.com/things-your-shoes-say-about-you/)
-- [is manolo blahnik comfortable](https://shoes.allwomenstalk.com/shoes-for-wide-feet-that-are-comfortable-and-hot/)
+- [quirky flat shoes](https://shoes.allwomenstalk.com/eclectic-shoes-to-wear-when-you-are-in-a-quirky-mood/)
 - [8 Stylish Suede Shoes ...](https://shoes.allwomenstalk.com/8-stylish-suede-shoes/)
 - [8 Great and Charmingly Gorgeous Flat Boots for Win...](https://shoes.allwomenstalk.com/great-and-charmingly-gorgeous-flat-boots-for-winter/)
 

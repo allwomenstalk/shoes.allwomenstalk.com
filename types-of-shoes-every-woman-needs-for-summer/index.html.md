@@ -68,16 +68,16 @@ You don't want to wear the same shoes to the beach as you'll wear at an amusemen
 
 ## Related Posts
 
-- [beach themed ankle bracelet](https://jewelry.allwomenstalk.com/show-your-toes-some-love-wear-some-of-these-bits-of-beach-jewelry-for-your-feet/)
-- [high heels you can wear all day](https://shoes.allwomenstalk.com/how-to-wear-high-heels-without-damaging-your-feet/)
-- [peep toe boots for girls](https://shoes.allwomenstalk.com/hello-toes-check-out-these-peep-toe-booties-to-take-you-from-summer-to-fall/)
-- [need those sneakers](https://shoes.allwomenstalk.com/you-need-these-sneakers-in-your-closet/)
-- [open toe tall boots](https://shoes.allwomenstalk.com/which-of-these-ways-will-you-wear-peep-toe-booties-this-fall/)
-- [frye parker boots](https://shoes.allwomenstalk.com/must-have-lace-up-boots-for-fall/)
-- [sweaty teen feet](https://beauty.allwomenstalk.com/keep-your-feet-free-from-stink-and-sweat/)
-- [neon colored shoes](https://shoes.allwomenstalk.com/super-cool-pairs-of-neon-running-shoes-to-motivate-you/)
 - [bling flipflops](https://shoes.allwomenstalk.com/get-ready-for-some-bling-pairs-of-jeweled-flip-flops-to-wear-all-summer-long/)
+- [open toe tall boots](https://shoes.allwomenstalk.com/which-of-these-ways-will-you-wear-peep-toe-booties-this-fall/)
+- [peep toe boots for girls](https://shoes.allwomenstalk.com/hello-toes-check-out-these-peep-toe-booties-to-take-you-from-summer-to-fall/)
+- [beach themed ankle bracelet](https://jewelry.allwomenstalk.com/show-your-toes-some-love-wear-some-of-these-bits-of-beach-jewelry-for-your-feet/)
+- [sweaty teen feet](https://beauty.allwomenstalk.com/keep-your-feet-free-from-stink-and-sweat/)
+- [need those sneakers](https://shoes.allwomenstalk.com/you-need-these-sneakers-in-your-closet/)
 - [kitten heels meaning](https://shoes.allwomenstalk.com/these-shoes-give-new-meaning-to-kitten-heels/)
+- [neon colored shoes](https://shoes.allwomenstalk.com/super-cool-pairs-of-neon-running-shoes-to-motivate-you/)
+- [high heels you can wear all day](https://shoes.allwomenstalk.com/how-to-wear-high-heels-without-damaging-your-feet/)
+- [frye parker boots](https://shoes.allwomenstalk.com/must-have-lace-up-boots-for-fall/)
 - [7 Cute Summer Flat Shoes Youll Love ...](https://shoes.allwomenstalk.com/cute-summer-flat-shoes-youll-love/)
 - [Fun Shoes for Summer: Soccer Slip-ons ...](https://allwomenstalk.com/fun-shoes-for-summer-soccer-slip-ons/)
 

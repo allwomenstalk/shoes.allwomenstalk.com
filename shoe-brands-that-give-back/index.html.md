@@ -61,16 +61,16 @@ These are 7 fantastic shoe brands that give back. Which one is your favorite? Do
 
 ## Related Posts
 
-- [designer shoes that look like vans](https://shoes.allwomenstalk.com/fabulous-designer-shoe-collaborations/)
-- [what to do with new shoes](https://shoes.allwomenstalk.com/tips-for-wearing-in-new-shoes/)
+- [emitaz age](https://shoes.allwomenstalk.com/adorable-shoes-to-wear-to-a-date-this-fall/)
 - [new cool sneakers](https://shoes.allwomenstalk.com/cool-sneakers-you-need-now/)
-- [large size womens dress shoes](https://fashion.allwomenstalk.com/gorgeous-shoes-for-plus-size-ladies/)
+- [winter trend shoes](https://shoes.allwomenstalk.com/shoe-trends-to-take-note-of-this-winter/)
+- [what to do with new shoes](https://shoes.allwomenstalk.com/tips-for-wearing-in-new-shoes/)
 - [shoes for college student](https://shoes.allwomenstalk.com/comfy-shoes-for-college-students/)
 - [10 types of shoes](https://shoes.allwomenstalk.com/types-of-shoes-you-need-in-your-closet/)
-- [board names on pinterest](https://shoes.allwomenstalk.com/best-pinterest-shoe-boards/)
-- [winter trend shoes](https://shoes.allwomenstalk.com/shoe-trends-to-take-note-of-this-winter/)
 - [tall boots for fall](https://shoes.allwomenstalk.com/tantalizing-tall-fall-boots/)
-- [emitaz age](https://shoes.allwomenstalk.com/adorable-shoes-to-wear-to-a-date-this-fall/)
+- [board names on pinterest](https://shoes.allwomenstalk.com/best-pinterest-shoe-boards/)
+- [designer shoes that look like vans](https://shoes.allwomenstalk.com/fabulous-designer-shoe-collaborations/)
+- [large size womens dress shoes](https://fashion.allwomenstalk.com/gorgeous-shoes-for-plus-size-ladies/)
 - [7 Stylish Sneakers ...](https://shoes.allwomenstalk.com/7-stylish-sneakers/)
 - [7 Classic Designer Shoes to Invest into ...](https://shoes.allwomenstalk.com/classic-designer-shoes-to-invest-into/)
 

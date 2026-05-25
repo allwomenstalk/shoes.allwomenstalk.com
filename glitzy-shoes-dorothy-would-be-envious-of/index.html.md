@@ -128,15 +128,15 @@ Which have you got your eye on?
 
 ## Related Posts
 
-- [shoes every woman should own](https://shoes.allwomenstalk.com/the-rules-of-shoes-every-woman-should-live-by/)
 - [boots for short dresses](https://fashion.allwomenstalk.com/how-short-girls-can-get-away-with-wearing-knee-high-boots/)
-- [how to wear strappy heels without pain](https://shoes.allwomenstalk.com/tips-for-wearing-sexy-heels-all-day-long-without-suffering/)
-- [beau monde rehab](https://shoes.allwomenstalk.com/gorgeous-flats-for-girls-who-dont-like-heels/)
+- [shoes every woman should own](https://shoes.allwomenstalk.com/the-rules-of-shoes-every-woman-should-live-by/)
 - [big feet beauty](https://shoes.allwomenstalk.com/beauties-with-big-feet-should-buy-these-stylish-shoes/)
 - [i dont wear heels](https://shoes.allwomenstalk.com/you-dont-have-to-wear-heels-if-youre-short/)
+- [best strappy sandals](https://shoes.allwomenstalk.com/strappy-summer-sandals-that-are-super-comfy/)
+- [beau monde rehab](https://shoes.allwomenstalk.com/gorgeous-flats-for-girls-who-dont-like-heels/)
+- [how to wear strappy heels without pain](https://shoes.allwomenstalk.com/tips-for-wearing-sexy-heels-all-day-long-without-suffering/)
 - [ankle tattoo women](https://beauty.allwomenstalk.com/adorable-foot-tattoos-that-are-easy-to-cover/)
 - [show your toes](https://shoes.allwomenstalk.com/show-off-your-toes-with-these-springtime-sandals/)
-- [best strappy sandals](https://shoes.allwomenstalk.com/strappy-summer-sandals-that-are-super-comfy/)
 - [genius shoes](https://shoes.allwomenstalk.com/how-to-help-your-white-sneakers-stay-white/)
 - [20 Stylish Metallic Diane Von Furstenberg High Hee...](https://shoes.allwomenstalk.com/stylish-metallic-diane-von-furstenberg-high-heels/)
 - [7 Glamorous Green Stuart Weitzman High Heels ...](https://shoes.allwomenstalk.com/glamorous-green-stuart-weitzman-high-heels/)

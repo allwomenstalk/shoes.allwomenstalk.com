@@ -202,16 +202,16 @@ There you have it! A whole host of shoes to choose from to wear to prom! Now her
 
 ## Related Posts
 
-- [bling flipflops](https://shoes.allwomenstalk.com/get-ready-for-some-bling-pairs-of-jeweled-flip-flops-to-wear-all-summer-long/)
-- [gladiator sandals costume](https://shoes.allwomenstalk.com/ways-to-wear-gladiator-sandals-that-would-turn-russell-crowes-head/)
 - [beach themed ankle bracelet](https://jewelry.allwomenstalk.com/show-your-toes-some-love-wear-some-of-these-bits-of-beach-jewelry-for-your-feet/)
-- [cant walk in heels](https://shoes.allwomenstalk.com/cant-handle-heels-tips-to-make-walking-in-them-way-easier/)
-- [do white sneakers go with everything](https://fashion.allwomenstalk.com/fashion-trend-clean-white-sneakers-and-how-you-can-wear-them-with-pretty-much-everything/)
 - [shoes to add height for amusement park](https://shoes.allwomenstalk.com/types-of-shoes-every-woman-needs-for-summer/)
 - [black summer sandal](https://shoes.allwomenstalk.com/pairs-of-black-summer-sandals-that-will-drop-your-jaw/)
 - [high heels you can wear all day](https://shoes.allwomenstalk.com/how-to-wear-high-heels-without-damaging-your-feet/)
-- [how to make sandals more comfortable](https://shoes.allwomenstalk.com/make-your-sandals-and-flip-flops-feel-comfy/)
+- [cant walk in heels](https://shoes.allwomenstalk.com/cant-handle-heels-tips-to-make-walking-in-them-way-easier/)
 - [sweaty teen feet](https://beauty.allwomenstalk.com/keep-your-feet-free-from-stink-and-sweat/)
+- [bling flipflops](https://shoes.allwomenstalk.com/get-ready-for-some-bling-pairs-of-jeweled-flip-flops-to-wear-all-summer-long/)
+- [do white sneakers go with everything](https://fashion.allwomenstalk.com/fashion-trend-clean-white-sneakers-and-how-you-can-wear-them-with-pretty-much-everything/)
+- [gladiator sandals costume](https://shoes.allwomenstalk.com/ways-to-wear-gladiator-sandals-that-would-turn-russell-crowes-head/)
+- [how to make sandals more comfortable](https://shoes.allwomenstalk.com/make-your-sandals-and-flip-flops-feel-comfy/)
 - [7 Block Heel Shoes ...](https://shoes.allwomenstalk.com/7-block-heel-shoes/)
 - [8 Stylish and Sexy Party Heels ...](https://shoes.allwomenstalk.com/stylish-and-sexy-party-heels/)
 

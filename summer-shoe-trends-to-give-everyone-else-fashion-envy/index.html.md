@@ -95,16 +95,16 @@ Tabitha Simmons sandals, $795 at [net-a-porter.com](https://goo.gl/VOSmOa)
 
 ## Related Posts
 
-- [stylish flats](https://shoes.allwomenstalk.com/stylish-flats-to-have-you-looking-cute-while-your-feet-are-comfy/)
-- [how to pick workout shoes](https://shoes.allwomenstalk.com/tips-to-finding-the-best-workout-shoes/)
-- [how to wear pumps without pain](https://shoes.allwomenstalk.com/how-to-wear-high-heels-without-pain/)
-- [myers briggs shoe](https://shoes.allwomenstalk.com/what-your-favourite-shoe-type-says-about-your-personality/)
-- [walk in heels for beginners](https://fashion.allwomenstalk.com/essential-tips-to-walking-in-heels-for-the-modern-day-woman/)
-- [black friday deals walking boots](https://shoes.allwomenstalk.com/best-black-friday-deals-on-designer-boots/)
 - [soles gif](https://beauty.allwomenstalk.com/brilliant-ways-to-keep-your-feet-healthy-and-beautiful/)
+- [black friday deals walking boots](https://shoes.allwomenstalk.com/best-black-friday-deals-on-designer-boots/)
+- [langria storage cubes](https://lifestyle.allwomenstalk.com/langria-shoe-storage-cubes/)
+- [how to wear pumps without pain](https://shoes.allwomenstalk.com/how-to-wear-high-heels-without-pain/)
+- [how to pick workout shoes](https://shoes.allwomenstalk.com/tips-to-finding-the-best-workout-shoes/)
+- [stylish flats](https://shoes.allwomenstalk.com/stylish-flats-to-have-you-looking-cute-while-your-feet-are-comfy/)
 - [comfortable mid heels](https://shoes.allwomenstalk.com/why-the-mid-heel-is-the-best-height-out-there/)
 - [shoes every girl needs](https://shoes.allwomenstalk.com/secrets-that-every-woman-needs-to-know-when-buying-work-shoes/)
-- [langria storage cubes](https://lifestyle.allwomenstalk.com/langria-shoe-storage-cubes/)
+- [walk in heels for beginners](https://fashion.allwomenstalk.com/essential-tips-to-walking-in-heels-for-the-modern-day-woman/)
+- [myers briggs shoe](https://shoes.allwomenstalk.com/what-your-favourite-shoe-type-says-about-your-personality/)
 - [Summer Fashion Trends - the Shoe Fetish - Top 30 ....](https://allwomenstalk.com/summer-fashion-trends-shoes-fetish/)
 - [10 Celebrity Spring Trends ...](https://allwomenstalk.com/10-celebrity-spring-trends/)
 

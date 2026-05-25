@@ -70,16 +70,16 @@ I am really such a stereotypical sucker for shoes. I can't wait until I can wear
 
 ## Related Posts
 
-- [poetic justice shoes](https://shoes.allwomenstalk.com/7-cute-shoes-by-poetic-license/)
-- [flatforms shoes](https://shoes.allwomenstalk.com/flatform-shoes/)
-- [lucky penny shoes](https://shoes.allwomenstalk.com/pretty-sandals-by-lucky-penny/)
-- [boots with studs](https://shoes.allwomenstalk.com/8-hottest-studded-boots/)
-- [8 Fab Studded Shoes ...](https://shoes.allwomenstalk.com/fab-studded-shoes/)
-- [loreal color riche le stylo eye glistening](https://shoes.allwomenstalk.com/7-new-wedges-i-love/)
-- [8 Ankle Strap Shoes ...](https://shoes.allwomenstalk.com/ankle-strap-shoes/)
-- [romantic instagram couple goals](https://shoes.allwomenstalk.com/8-shoes-that-make-me-drool/)
-- [7 Shoes to Wear in Warm Weather ...](https://shoes.allwomenstalk.com/shoes-to-wear-in-warm-weather/)
 - [7 Glitter-Finish Shoes ...](https://shoes.allwomenstalk.com/7-glitter-finish-shoes/)
+- [lucky penny shoes](https://shoes.allwomenstalk.com/pretty-sandals-by-lucky-penny/)
+- [romantic instagram couple goals](https://shoes.allwomenstalk.com/8-shoes-that-make-me-drool/)
+- [flatforms shoes](https://shoes.allwomenstalk.com/flatform-shoes/)
+- [8 Ankle Strap Shoes ...](https://shoes.allwomenstalk.com/ankle-strap-shoes/)
+- [7 Shoes to Wear in Warm Weather ...](https://shoes.allwomenstalk.com/shoes-to-wear-in-warm-weather/)
+- [loreal color riche le stylo eye glistening](https://shoes.allwomenstalk.com/7-new-wedges-i-love/)
+- [8 Fab Studded Shoes ...](https://shoes.allwomenstalk.com/fab-studded-shoes/)
+- [boots with studs](https://shoes.allwomenstalk.com/8-hottest-studded-boots/)
+- [poetic justice shoes](https://shoes.allwomenstalk.com/7-cute-shoes-by-poetic-license/)
 - [8 Gorgeous Metallic Fendi High Heels ...](https://shoes.allwomenstalk.com/gorgeous-metallic-fendi-high-heels/)
 - [8 Hot Blue Prada High Heels ...](https://shoes.allwomenstalk.com/hot-blue-prada-high-heels/)
 

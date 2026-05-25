@@ -112,16 +112,16 @@ If your wardrobe is lacking in the shoe department, take a trip to the mall. You
 
 ## Related Posts
 
-- [new years eve heels](https://shoes.allwomenstalk.com/cute-flats-for-new-years-eve-and-beyond/)
-- [different types of shoes for ladies](https://shoes.allwomenstalk.com/essential-types-of-shoes-all-women-should-have/)
-- [brown womens ankle boots](https://shoes.allwomenstalk.com/best-brown-ankle-boots/)
 - [leather smoking shoes](https://shoes.allwomenstalk.com/the-best-smoking-slippers/)
-- [d orsay sandals](https://shoes.allwomenstalk.com/best-dorsay-flats/)
-- [stylish runners](https://shoes.allwomenstalk.com/best-stylish-running-sneakers/)
-- [health benefits of leather shoes](https://shoes.allwomenstalk.com/benefits-of-natural-leather-to-consider-when-buying-footwear/)
+- [different types of shoes for ladies](https://shoes.allwomenstalk.com/essential-types-of-shoes-all-women-should-have/)
 - [can you wear ankle boots in the summer](https://shoes.allwomenstalk.com/ways-to-make-ankle-boots-work-for-you/)
+- [brown womens ankle boots](https://shoes.allwomenstalk.com/best-brown-ankle-boots/)
 - [so paulina boots](https://shoes.allwomenstalk.com/the-best-black-riding-boots/)
+- [health benefits of leather shoes](https://shoes.allwomenstalk.com/benefits-of-natural-leather-to-consider-when-buying-footwear/)
 - [menswear inspired shoes](https://shoes.allwomenstalk.com/menswear-style-shoes-you-can-wear-with-your-ladylike-outfits/)
+- [stylish runners](https://shoes.allwomenstalk.com/best-stylish-running-sneakers/)
+- [d orsay sandals](https://shoes.allwomenstalk.com/best-dorsay-flats/)
+- [new years eve heels](https://shoes.allwomenstalk.com/cute-flats-for-new-years-eve-and-beyond/)
 - [10 Stylish Ankle Boots ...](https://shoes.allwomenstalk.com/stylish-ankle-boots/)
 - [9 Beautiful Black Maloles Boots and Booties ...](https://shoes.allwomenstalk.com/beautiful-black-maloles-boots-and-booties/)
 

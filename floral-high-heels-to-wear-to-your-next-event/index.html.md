@@ -56,16 +56,16 @@ Do you like floral high heels, if so, where will you be wearing your next pair?
 
 ## Related Posts
 
-- [aldocom](https://fashion.allwomenstalk.com/affordable-accessories-from-aldo-com/)
 - [vegan chic shoes](https://shoes.allwomenstalk.com/vegan-footwear-brands-youll-love/)
-- [adorable shoes](https://parenting.allwomenstalk.com/adorable-pairs-of-baby-shoes-youll-want-for-your-little-one/)
 - [darcy booties](https://shoes.allwomenstalk.com/fifteen-shades-of-beige-the-best-brown-boots-this-fall/)
+- [michael kors short rain boots](https://shoes.allwomenstalk.com/rain-boots-to-keep-your-feet-dry-this-winter/)
 - [tension rod shoe rack](https://shoes.allwomenstalk.com/shoe-racks-carrie-bradshaw-would-be-proud-of/)
+- [boots street style](https://streetstyle.allwomenstalk.com/street-style-outfits-with-boots-for-the-fall/)
+- [aldocom](https://fashion.allwomenstalk.com/affordable-accessories-from-aldo-com/)
 - [new birkenstock trend](https://shoes.allwomenstalk.com/reasons-why-the-birkenstock-trend-is-awesome/)
 - [wear heels without pain](https://fashion.allwomenstalk.com/the-secret-to-wearing-high-heels-without-any-pain/)
-- [michael kors short rain boots](https://shoes.allwomenstalk.com/rain-boots-to-keep-your-feet-dry-this-winter/)
-- [boots street style](https://streetstyle.allwomenstalk.com/street-style-outfits-with-boots-for-the-fall/)
 - [baby boy peep toe boots](https://parenting.allwomenstalk.com/pairs-of-baby-booties-to-keep-tiny-feet-warm/)
+- [adorable shoes](https://parenting.allwomenstalk.com/adorable-pairs-of-baby-shoes-youll-want-for-your-little-one/)
 - [4 Chic Heels That Will Ruffle Your Wedding Feather...](https://wedding.allwomenstalk.com/4-chic-heels-that-will-ruffle-your-wedding-feathers/)
 - [4 Stylish Boots for Your Wedding Day Shoe ...](https://wedding.allwomenstalk.com/4-stylish-boots-for-your-wedding-day-shoe/)
 

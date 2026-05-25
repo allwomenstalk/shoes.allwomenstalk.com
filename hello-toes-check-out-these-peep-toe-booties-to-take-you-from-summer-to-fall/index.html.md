@@ -150,16 +150,16 @@ Source: [Burberry - Boots](http://us.burberry.com?ref=allwomenstalk.com)
 
 ## Related Posts
 
-- [heels hack](https://shoes.allwomenstalk.com/do-these-things-before-buying-a-pair-of-heels/)
-- [outfit with ankle boots](https://shoes.allwomenstalk.com/these-celebs-offer-up-some-ways-to-wear-ankle-boots/)
-- [how to keep shoes from dry rotting](https://shoes.allwomenstalk.com/ways-to-keep-your-shoes-looking-like-new/)
-- [boots made for walking gif](https://shoes.allwomenstalk.com/dont-make-these-mistakes-with-your-winter-boots/)
 - [luisa via roma loafers and moccasins](https://shoes.allwomenstalk.com/pairs-of-loafers-youll-love-to-walk-around-town-in/)
 - [open toe tall boots](https://shoes.allwomenstalk.com/which-of-these-ways-will-you-wear-peep-toe-booties-this-fall/)
-- [how to soothe feet after wearing heels](https://shoes.allwomenstalk.com/how-to-soothe-your-feet-after-wearing-heels/)
 - [kitten heels meaning](https://shoes.allwomenstalk.com/these-shoes-give-new-meaning-to-kitten-heels/)
-- [glitzy shoes](https://shoes.allwomenstalk.com/glitzy-shoes-dorothy-would-be-envious-of/)
+- [boots made for walking gif](https://shoes.allwomenstalk.com/dont-make-these-mistakes-with-your-winter-boots/)
+- [heels hack](https://shoes.allwomenstalk.com/do-these-things-before-buying-a-pair-of-heels/)
 - [how to break in leather boots](https://shoes.allwomenstalk.com/how-to-break-in-your-new-boots/)
+- [how to soothe feet after wearing heels](https://shoes.allwomenstalk.com/how-to-soothe-your-feet-after-wearing-heels/)
+- [outfit with ankle boots](https://shoes.allwomenstalk.com/these-celebs-offer-up-some-ways-to-wear-ankle-boots/)
+- [glitzy shoes](https://shoes.allwomenstalk.com/glitzy-shoes-dorothy-would-be-envious-of/)
+- [how to keep shoes from dry rotting](https://shoes.allwomenstalk.com/ways-to-keep-your-shoes-looking-like-new/)
 - [8 Peep-Toe Pumps ...](https://shoes.allwomenstalk.com/8-peep-toe-pumps/)
 - [9 Delightfully Gorgeous Multi-Colored Shoes to Bri...](https://shoes.allwomenstalk.com/delightfully-gorgeous-multi-colored-shoes-to-brighten-up-your-fall/)
 

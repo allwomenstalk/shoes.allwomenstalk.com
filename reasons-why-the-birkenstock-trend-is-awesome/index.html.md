@@ -42,15 +42,15 @@ There are just so many reasons to love Birkenstocks! After my first pair (and no
 
 ## Related Posts
 
-- [boots street style](https://streetstyle.allwomenstalk.com/street-style-outfits-with-boots-for-the-fall/)
-- [aldocom](https://fashion.allwomenstalk.com/affordable-accessories-from-aldo-com/)
-- [baby boy peep toe boots](https://parenting.allwomenstalk.com/pairs-of-baby-booties-to-keep-tiny-feet-warm/)
-- [vegan chic shoes](https://shoes.allwomenstalk.com/vegan-footwear-brands-youll-love/)
-- [darcy booties](https://shoes.allwomenstalk.com/fifteen-shades-of-beige-the-best-brown-boots-this-fall/)
-- [adorable shoes](https://parenting.allwomenstalk.com/adorable-pairs-of-baby-shoes-youll-want-for-your-little-one/)
-- [homemade diy gladiator sandals](https://shoes.allwomenstalk.com/shoe-makeover-projects-for-the-best-dressed-feet-in-town/)
 - [tension rod shoe rack](https://shoes.allwomenstalk.com/shoe-racks-carrie-bradshaw-would-be-proud-of/)
 - [michael kors short rain boots](https://shoes.allwomenstalk.com/rain-boots-to-keep-your-feet-dry-this-winter/)
+- [darcy booties](https://shoes.allwomenstalk.com/fifteen-shades-of-beige-the-best-brown-boots-this-fall/)
+- [adorable shoes](https://parenting.allwomenstalk.com/adorable-pairs-of-baby-shoes-youll-want-for-your-little-one/)
+- [vegan chic shoes](https://shoes.allwomenstalk.com/vegan-footwear-brands-youll-love/)
+- [homemade diy gladiator sandals](https://shoes.allwomenstalk.com/shoe-makeover-projects-for-the-best-dressed-feet-in-town/)
+- [aldocom](https://fashion.allwomenstalk.com/affordable-accessories-from-aldo-com/)
+- [boots street style](https://streetstyle.allwomenstalk.com/street-style-outfits-with-boots-for-the-fall/)
+- [baby boy peep toe boots](https://parenting.allwomenstalk.com/pairs-of-baby-booties-to-keep-tiny-feet-warm/)
 - [wear heels without pain](https://fashion.allwomenstalk.com/the-secret-to-wearing-high-heels-without-any-pain/)
 - [7 Stylish Sneakers ...](https://shoes.allwomenstalk.com/7-stylish-sneakers/)
 - [7 Reasons Why Fake Fur Rocks ...](https://fashion.allwomenstalk.com/reasons-why-fake-fur-rocks/)

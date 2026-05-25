@@ -70,16 +70,16 @@ What look did you like best for Spring 2015??
 
 ## Related Posts
 
-- [black summer sandal](https://shoes.allwomenstalk.com/pairs-of-black-summer-sandals-that-will-drop-your-jaw/)
-- [pictures of the most expensive shoes in the world](https://shoes.allwomenstalk.com/well-heeled-some-of-the-most-expensive-shoes-in-the-world/)
-- [do white sneakers go with everything](https://fashion.allwomenstalk.com/fashion-trend-clean-white-sneakers-and-how-you-can-wear-them-with-pretty-much-everything/)
-- [orange heels size 8](https://shoes.allwomenstalk.com/need-some-color-in-your-life-try-these-pairs-of-orange-heels/)
-- [prom shoes not heels](https://shoes.allwomenstalk.com/heels-to-wear-to-prom/)
 - [green and purple heels](https://shoes.allwomenstalk.com/would-you-wear-purple-heels-choices-that-will-rock-your-world/)
+- [orange heels size 8](https://shoes.allwomenstalk.com/need-some-color-in-your-life-try-these-pairs-of-orange-heels/)
+- [cant walk in heels](https://shoes.allwomenstalk.com/cant-handle-heels-tips-to-make-walking-in-them-way-easier/)
+- [pictures of the most expensive shoes in the world](https://shoes.allwomenstalk.com/well-heeled-some-of-the-most-expensive-shoes-in-the-world/)
+- [black summer sandal](https://shoes.allwomenstalk.com/pairs-of-black-summer-sandals-that-will-drop-your-jaw/)
+- [prom shoes not heels](https://shoes.allwomenstalk.com/heels-to-wear-to-prom/)
+- [gladiator sandals costume](https://shoes.allwomenstalk.com/ways-to-wear-gladiator-sandals-that-would-turn-russell-crowes-head/)
+- [do white sneakers go with everything](https://fashion.allwomenstalk.com/fashion-trend-clean-white-sneakers-and-how-you-can-wear-them-with-pretty-much-everything/)
 - [how to make sandals more comfortable](https://shoes.allwomenstalk.com/make-your-sandals-and-flip-flops-feel-comfy/)
 - [shoes to add height for amusement park](https://shoes.allwomenstalk.com/types-of-shoes-every-woman-needs-for-summer/)
-- [cant walk in heels](https://shoes.allwomenstalk.com/cant-handle-heels-tips-to-make-walking-in-them-way-easier/)
-- [gladiator sandals costume](https://shoes.allwomenstalk.com/ways-to-wear-gladiator-sandals-that-would-turn-russell-crowes-head/)
 - [10 Stylish Ankle Boots ...](https://shoes.allwomenstalk.com/stylish-ankle-boots/)
 - [9 Designer Shoes That Are Hot This Season ...](https://shoes.allwomenstalk.com/designer-shoes-that-are-hot-this-season/)
 

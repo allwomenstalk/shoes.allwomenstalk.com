@@ -56,16 +56,16 @@ Get ready for puddle stomping! Rainboots are so useful during the spring, and ju
 
 ## Related Posts
 
-- [how to make high heels more comfortable](https://shoes.allwomenstalk.com/ways-to-make-high-heels-more-comfortable/)
-- [who makes exist shoes](https://shoes.allwomenstalk.com/ridiculous-shoes-that-shouldnt-exist/)
-- [cowboy boots with angel wings](https://fashion.allwomenstalk.com/pairs-of-cowboy-boots-to-wake-up-your-country-side/)
-- [top 10 shoe brands](https://shoes.allwomenstalk.com/great-shoe-brands-for-women-with-narrow-feet/)
-- [running shoes for pavement](https://fitness.allwomenstalk.com/fantastic-pairs-of-running-shoes-that-will-make-you-want-to-hit-the-pavement/)
 - [how many pairs of shoes should a man own](https://shoes.allwomenstalk.com/reasons-you-dont-need-so-many-shoes/)
-- [sky high shoes](https://shoes.allwomenstalk.com/pairs-of-sky-high-stilettos-that-will-go-with-anything-in-your-closet/)
+- [top 10 shoe brands](https://shoes.allwomenstalk.com/great-shoe-brands-for-women-with-narrow-feet/)
 - [how to repair leather shoe scuffs](https://shoes.allwomenstalk.com/ways-to-remove-scuff-marks-from-shoes/)
 - [espadrilles about you](https://shoes.allwomenstalk.com/perfectly-pretty-wedges-and-espadrilles-from-bluefly-com/)
+- [cowboy boots with angel wings](https://fashion.allwomenstalk.com/pairs-of-cowboy-boots-to-wake-up-your-country-side/)
+- [sky high shoes](https://shoes.allwomenstalk.com/pairs-of-sky-high-stilettos-that-will-go-with-anything-in-your-closet/)
+- [who makes exist shoes](https://shoes.allwomenstalk.com/ridiculous-shoes-that-shouldnt-exist/)
 - [floral pattern shoes for ladies](https://shoes.allwomenstalk.com/floral-shoes-for-pretty-feet-in-all-seasons/)
+- [how to make high heels more comfortable](https://shoes.allwomenstalk.com/ways-to-make-high-heels-more-comfortable/)
+- [running shoes for pavement](https://fitness.allwomenstalk.com/fantastic-pairs-of-running-shoes-that-will-make-you-want-to-hit-the-pavement/)
 - [7 Stylish Wellington Boots ...](https://shoes.allwomenstalk.com/stylish-wellington-boots/)
 - [7 Colorful Wedges ...](https://shoes.allwomenstalk.com/colorful-wedges/)
 

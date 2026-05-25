@@ -58,16 +58,16 @@ SHOES! Go out now ladies and update you wardrobe to properly accent your persona
 
 ## Related Posts
 
-- [top 10 shoe brands](https://shoes.allwomenstalk.com/great-shoe-brands-for-women-with-narrow-feet/)
-- [quirky flat shoes](https://shoes.allwomenstalk.com/eclectic-shoes-to-wear-when-you-are-in-a-quirky-mood/)
-- [shoe.shops](https://shoes.allwomenstalk.com/boutique-shoe-stores-in-london-you-can-visit/)
 - [budget footwear](https://shoes.allwomenstalk.com/ways-to-buy-shoes-on-a-budget-and-look-like-youre-wearing-couture/)
-- [how to make high heels more comfortable](https://shoes.allwomenstalk.com/ways-to-make-high-heels-more-comfortable/)
-- [women heels types](https://shoes.allwomenstalk.com/different-heel-types-on-womens-shoes/)
-- [who makes exist shoes](https://shoes.allwomenstalk.com/ridiculous-shoes-that-shouldnt-exist/)
-- [is manolo blahnik comfortable](https://shoes.allwomenstalk.com/shoes-for-wide-feet-that-are-comfortable-and-hot/)
+- [top 10 shoe brands](https://shoes.allwomenstalk.com/great-shoe-brands-for-women-with-narrow-feet/)
+- [shoe.shops](https://shoes.allwomenstalk.com/boutique-shoe-stores-in-london-you-can-visit/)
 - [most comfy sandals](https://shoes.allwomenstalk.com/fashionable-alternatives-to-heels-for-day-and-night/)
+- [how to make high heels more comfortable](https://shoes.allwomenstalk.com/ways-to-make-high-heels-more-comfortable/)
+- [is manolo blahnik comfortable](https://shoes.allwomenstalk.com/shoes-for-wide-feet-that-are-comfortable-and-hot/)
 - [colorful rainboots](https://shoes.allwomenstalk.com/colorful-rainboots-for-april-showers/)
+- [quirky flat shoes](https://shoes.allwomenstalk.com/eclectic-shoes-to-wear-when-you-are-in-a-quirky-mood/)
+- [who makes exist shoes](https://shoes.allwomenstalk.com/ridiculous-shoes-that-shouldnt-exist/)
+- [women heels types](https://shoes.allwomenstalk.com/different-heel-types-on-womens-shoes/)
 - [9 Things You Can Tell about a Man from the Way He ...](https://allwomenstalk.com/9-things-you-can-tell-about-a-man-from-the-way-he-eats/)
 - [7 Things Your Nails Say about Your Health ...](https://allwomenstalk.com/7-things-your-nails-say-about-your-health/)
 

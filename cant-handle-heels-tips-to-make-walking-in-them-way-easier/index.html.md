@@ -42,15 +42,15 @@ These are 7 tips to help you walk in heels. Do you feel intimidated by heels? Do
 
 ## Related Posts
 
-- [bling flipflops](https://shoes.allwomenstalk.com/get-ready-for-some-bling-pairs-of-jeweled-flip-flops-to-wear-all-summer-long/)
-- [need those sneakers](https://shoes.allwomenstalk.com/you-need-these-sneakers-in-your-closet/)
-- [shoes to add height for amusement park](https://shoes.allwomenstalk.com/types-of-shoes-every-woman-needs-for-summer/)
-- [high heels you can wear all day](https://shoes.allwomenstalk.com/how-to-wear-high-heels-without-damaging-your-feet/)
-- [how to make sandals more comfortable](https://shoes.allwomenstalk.com/make-your-sandals-and-flip-flops-feel-comfy/)
 - [black summer sandal](https://shoes.allwomenstalk.com/pairs-of-black-summer-sandals-that-will-drop-your-jaw/)
-- [sweaty teen feet](https://beauty.allwomenstalk.com/keep-your-feet-free-from-stink-and-sweat/)
-- [neon colored shoes](https://shoes.allwomenstalk.com/super-cool-pairs-of-neon-running-shoes-to-motivate-you/)
 - [gladiator sandals costume](https://shoes.allwomenstalk.com/ways-to-wear-gladiator-sandals-that-would-turn-russell-crowes-head/)
+- [sweaty teen feet](https://beauty.allwomenstalk.com/keep-your-feet-free-from-stink-and-sweat/)
+- [shoes to add height for amusement park](https://shoes.allwomenstalk.com/types-of-shoes-every-woman-needs-for-summer/)
+- [how to make sandals more comfortable](https://shoes.allwomenstalk.com/make-your-sandals-and-flip-flops-feel-comfy/)
+- [neon colored shoes](https://shoes.allwomenstalk.com/super-cool-pairs-of-neon-running-shoes-to-motivate-you/)
+- [need those sneakers](https://shoes.allwomenstalk.com/you-need-these-sneakers-in-your-closet/)
+- [bling flipflops](https://shoes.allwomenstalk.com/get-ready-for-some-bling-pairs-of-jeweled-flip-flops-to-wear-all-summer-long/)
+- [high heels you can wear all day](https://shoes.allwomenstalk.com/how-to-wear-high-heels-without-damaging-your-feet/)
 - [beach themed ankle bracelet](https://jewelry.allwomenstalk.com/show-your-toes-some-love-wear-some-of-these-bits-of-beach-jewelry-for-your-feet/)
 - [7 Wise Ways to Avoid Back Problems ...](https://health.allwomenstalk.com/wise-ways-to-avoid-back-problems/)
 - [7 Ways to Ease Back Pain ...](https://allwomenstalk.com/7-ways-to-ease-back-pain/)

@@ -226,15 +226,15 @@ Top Image Source: [pinterest.com](https://www.pinterest.com/pin/2765492333387757
 
 ## Related Posts
 
-- [emitaz age](https://shoes.allwomenstalk.com/adorable-shoes-to-wear-to-a-date-this-fall/)
-- [socks with heels](https://shoes.allwomenstalk.com/cute-socks-to-show-off-in-high-heel-shoes/)
-- [10 types of shoes](https://shoes.allwomenstalk.com/types-of-shoes-you-need-in-your-closet/)
-- [dance heels for everyday wear](https://shoes.allwomenstalk.com/comfy-heels-to-wear-to-the-office/)
-- [what to do with new shoes](https://shoes.allwomenstalk.com/tips-for-wearing-in-new-shoes/)
 - [new cool sneakers](https://shoes.allwomenstalk.com/cool-sneakers-you-need-now/)
-- [party shoes for womens](https://shoes.allwomenstalk.com/gorgeous-shoes-for-a-fab-garden-party/)
-- [all brand of shoes](https://shoes.allwomenstalk.com/shoe-brands-that-give-back/)
+- [dance heels for everyday wear](https://shoes.allwomenstalk.com/comfy-heels-to-wear-to-the-office/)
+- [10 types of shoes](https://shoes.allwomenstalk.com/types-of-shoes-you-need-in-your-closet/)
+- [emitaz age](https://shoes.allwomenstalk.com/adorable-shoes-to-wear-to-a-date-this-fall/)
 - [bow flats](https://shoes.allwomenstalk.com/adorable-bow-flats-for-summer/)
+- [party shoes for womens](https://shoes.allwomenstalk.com/gorgeous-shoes-for-a-fab-garden-party/)
+- [what to do with new shoes](https://shoes.allwomenstalk.com/tips-for-wearing-in-new-shoes/)
+- [all brand of shoes](https://shoes.allwomenstalk.com/shoe-brands-that-give-back/)
+- [socks with heels](https://shoes.allwomenstalk.com/cute-socks-to-show-off-in-high-heel-shoes/)
 - [tall boots for fall](https://shoes.allwomenstalk.com/tantalizing-tall-fall-boots/)
 - [8 Gorgeous Wedge Sandals ...](https://shoes.allwomenstalk.com/gorgeous-wedge-sandals/)
 - [Fun Shoes for Summer: Soccer Slip-ons ...](https://allwomenstalk.com/fun-shoes-for-summer-soccer-slip-ons/)

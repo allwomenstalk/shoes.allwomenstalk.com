@@ -46,16 +46,16 @@ These are 8 of the best home remedies for sore feet. Which ones will you try? Do
 
 ## Related Posts
 
-- [witch hazel for cleaning piercings](https://jewelry.allwomenstalk.com/ways-to-care-for-body-piercings/)
 - [dry hands in winter home remedies](https://skincare.allwomenstalk.com/remedies-for-dry-hands/)
-- [vaseline eyeshadow](https://beauty.allwomenstalk.com/uses-of-vaseline/)
-- [detox after drinking alcohol](https://health.allwomenstalk.com/ways-to-detox-after-drinking/)
-- [fighting a hangover](https://lifestyle.allwomenstalk.com/little-known-ways-to-fight-a-hangover/)
-- [baking soda itchy scalp](https://skincare.allwomenstalk.com/helpful-home-remedies-for-an-itchy-scalp/)
-- [bath recipes](https://skincare.allwomenstalk.com/relaxing-and-beneficial-bath-recipes-to-try/)
-- [loreal riche le stylo smoky shadow glistening garn...](https://hair.allwomenstalk.com/awesome-tips-for-an-invigorating-scalp-massage/)
+- [witch hazel for cleaning piercings](https://jewelry.allwomenstalk.com/ways-to-care-for-body-piercings/)
 - [burnt toast stomach ache](https://health.allwomenstalk.com/natural-ways-to-ease-an-upset-stomach/)
 - [bath salt blends](https://diy.allwomenstalk.com/bath-salts-to-make-yourself/)
+- [loreal riche le stylo smoky shadow glistening garn...](https://hair.allwomenstalk.com/awesome-tips-for-an-invigorating-scalp-massage/)
+- [baking soda itchy scalp](https://skincare.allwomenstalk.com/helpful-home-remedies-for-an-itchy-scalp/)
+- [fighting a hangover](https://lifestyle.allwomenstalk.com/little-known-ways-to-fight-a-hangover/)
+- [detox after drinking alcohol](https://health.allwomenstalk.com/ways-to-detox-after-drinking/)
+- [bath recipes](https://skincare.allwomenstalk.com/relaxing-and-beneficial-bath-recipes-to-try/)
+- [vaseline eyeshadow](https://beauty.allwomenstalk.com/uses-of-vaseline/)
 - [7 Tricks to Cure Dry Skin ...](https://skincare.allwomenstalk.com/tricks-to-cure-dry-skin/)
 - [8 Dry Skin Remedies That Will Work for You ...](https://skincare.allwomenstalk.com/dry-skin-remedies-that-will-work-for-you/)
 

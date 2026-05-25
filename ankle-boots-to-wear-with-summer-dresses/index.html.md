@@ -65,16 +65,16 @@ Top Image Source: [pinterest.com](https://www.pinterest.com/pin/3518444080904557
 
 ## Related Posts
 
+- [bow flats](https://shoes.allwomenstalk.com/adorable-bow-flats-for-summer/)
+- [wedge summer heels](https://shoes.allwomenstalk.com/statement-wedge-shoes-to-splurge-on-this-summer/)
 - [cute running sneakers](https://shoes.allwomenstalk.com/fashionable-and-functional-running-shoes/)
 - [socks with heels](https://shoes.allwomenstalk.com/cute-socks-to-show-off-in-high-heel-shoes/)
-- [bow flats](https://shoes.allwomenstalk.com/adorable-bow-flats-for-summer/)
+- [high heel saddle oxfords](https://shoes.allwomenstalk.com/stylish-saddle-shoes/)
+- [womens funky shoes](https://shoes.allwomenstalk.com/funky-neon-shoes-youve-got-to-have/)
 - [fabulous sunglasses](https://lifestyle.allwomenstalk.com/fabulous-sunglasses-for-running/)
+- [dressy flat sandals black](https://shoes.allwomenstalk.com/dressy-flat-sandals-to-wear-at-night/)
 - [party shoes for womens](https://shoes.allwomenstalk.com/gorgeous-shoes-for-a-fab-garden-party/)
 - [sneakers wedge shoes](https://shoes.allwomenstalk.com/sporty-wedge-sneakers-for-that-sporty-trend/)
-- [womens funky shoes](https://shoes.allwomenstalk.com/funky-neon-shoes-youve-got-to-have/)
-- [high heel saddle oxfords](https://shoes.allwomenstalk.com/stylish-saddle-shoes/)
-- [dressy flat sandals black](https://shoes.allwomenstalk.com/dressy-flat-sandals-to-wear-at-night/)
-- [wedge summer heels](https://shoes.allwomenstalk.com/statement-wedge-shoes-to-splurge-on-this-summer/)
 - [7 Shoes to Wear in Warm Weather ...](https://shoes.allwomenstalk.com/shoes-to-wear-in-warm-weather/)
 - [7 Ways to Wear Ankle Boots ...](https://fashion.allwomenstalk.com/ways-to-wear-ankle-boots/)
 

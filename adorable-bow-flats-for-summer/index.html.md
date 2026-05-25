@@ -61,16 +61,16 @@ Top Image Source: [weheartit.com](https://weheartit.com/entry/16654047)
 
 ## Related Posts
 
-- [board names on pinterest](https://shoes.allwomenstalk.com/best-pinterest-shoe-boards/)
-- [large size womens dress shoes](https://fashion.allwomenstalk.com/gorgeous-shoes-for-plus-size-ladies/)
-- [designer shoes that look like vans](https://shoes.allwomenstalk.com/fabulous-designer-shoe-collaborations/)
-- [tall boots for fall](https://shoes.allwomenstalk.com/tantalizing-tall-fall-boots/)
-- [10 types of shoes](https://shoes.allwomenstalk.com/types-of-shoes-you-need-in-your-closet/)
+- [dance heels for everyday wear](https://shoes.allwomenstalk.com/comfy-heels-to-wear-to-the-office/)
 - [what to do with new shoes](https://shoes.allwomenstalk.com/tips-for-wearing-in-new-shoes/)
+- [10 types of shoes](https://shoes.allwomenstalk.com/types-of-shoes-you-need-in-your-closet/)
+- [board names on pinterest](https://shoes.allwomenstalk.com/best-pinterest-shoe-boards/)
+- [all brand of shoes](https://shoes.allwomenstalk.com/shoe-brands-that-give-back/)
+- [tall boots for fall](https://shoes.allwomenstalk.com/tantalizing-tall-fall-boots/)
+- [designer shoes that look like vans](https://shoes.allwomenstalk.com/fabulous-designer-shoe-collaborations/)
 - [new cool sneakers](https://shoes.allwomenstalk.com/cool-sneakers-you-need-now/)
 - [emitaz age](https://shoes.allwomenstalk.com/adorable-shoes-to-wear-to-a-date-this-fall/)
-- [all brand of shoes](https://shoes.allwomenstalk.com/shoe-brands-that-give-back/)
-- [dance heels for everyday wear](https://shoes.allwomenstalk.com/comfy-heels-to-wear-to-the-office/)
+- [large size womens dress shoes](https://fashion.allwomenstalk.com/gorgeous-shoes-for-plus-size-ladies/)
 - [7 Cute Summer Flat Shoes Youll Love ...](https://shoes.allwomenstalk.com/cute-summer-flat-shoes-youll-love/)
 - [7 Fashionable Black Flat Shoes for Every Day ...](https://shoes.allwomenstalk.com/fashionable-black-flat-shoes-for-every-day/)
 

@@ -50,16 +50,16 @@ Fabulous feet mean a fabulous you darlings!
 
 ## Related Posts
 
-- [9 Toms Shoes Products I Am Currently Obsessed with...](https://fashion.allwomenstalk.com/toms-shoes-products-i-am-currently-obsessed-with/)
-- [7 Pairs of Fabulous Flats for Fall Thatll Look Gre...](https://shoes.allwomenstalk.com/pairs-of-fabulous-flats-for-fall-thatll-look-great-with-anything/)
-- [nice pairs](https://shoes.allwomenstalk.com/pretty-pairs-of-fall-shoes-i-cant-wait-to-slip-on-my-feet/)
-- [7 Pairs of Flats for Busy Women ...](https://shoes.allwomenstalk.com/pairs-of-flats-for-busy-women/)
-- [hottest high heels](https://fashion.allwomenstalk.com/of-the-hottest-heels-to-see-you-through-party-season/)
 - [shoes for fall and winter](https://shoes.allwomenstalk.com/pairs-of-shoes-for-fall-and-winter-season/)
-- [7 Chunky Cut out Boots to Give Your Outfits the Ed...](https://shoes.allwomenstalk.com/chunky-cut-out-boots-to-give-your-outfits-the-edge/)
-- [9 Ways to Pick the Perfect Heels That You Should T...](https://shoes.allwomenstalk.com/ways-to-pick-the-perfect-heels-that-you-should-try/)
-- [11 Best Fall Running Sneakers ...](https://shoes.allwomenstalk.com/best-fall-running-sneakers/)
+- [9 Toms Shoes Products I Am Currently Obsessed with...](https://fashion.allwomenstalk.com/toms-shoes-products-i-am-currently-obsessed-with/)
 - [im gushing](https://shoes.allwomenstalk.com/brands-of-knee-high-boots-im-gushing-over-this-fall/)
+- [7 Chunky Cut out Boots to Give Your Outfits the Ed...](https://shoes.allwomenstalk.com/chunky-cut-out-boots-to-give-your-outfits-the-edge/)
+- [hottest high heels](https://fashion.allwomenstalk.com/of-the-hottest-heels-to-see-you-through-party-season/)
+- [11 Best Fall Running Sneakers ...](https://shoes.allwomenstalk.com/best-fall-running-sneakers/)
+- [7 Pairs of Fabulous Flats for Fall Thatll Look Gre...](https://shoes.allwomenstalk.com/pairs-of-fabulous-flats-for-fall-thatll-look-great-with-anything/)
+- [9 Ways to Pick the Perfect Heels That You Should T...](https://shoes.allwomenstalk.com/ways-to-pick-the-perfect-heels-that-you-should-try/)
+- [7 Pairs of Flats for Busy Women ...](https://shoes.allwomenstalk.com/pairs-of-flats-for-busy-women/)
+- [nice pairs](https://shoes.allwomenstalk.com/pretty-pairs-of-fall-shoes-i-cant-wait-to-slip-on-my-feet/)
 - [7 Must Have Shoe Accessories ...](https://shoes.allwomenstalk.com/7-must-have-shoe-accessories/)
 - [7 Stylish Sneakers ...](https://shoes.allwomenstalk.com/7-stylish-sneakers/)
 

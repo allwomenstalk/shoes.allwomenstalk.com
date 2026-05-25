@@ -56,16 +56,16 @@ So why not leave your heels in the closet this summer, and treat your feet to so
 
 ## Related Posts
 
-- [How to Add Some Fun to Your Summer Wardrobe ...](https://fashion.allwomenstalk.com/how-to-add-some-fun-to-your-summer-wardrobe/)
 - [diy high waisted shorts](https://diy.allwomenstalk.com/ways-to-make-gorgeous-and-stylish-diy-summer-shorts/)
-- [A Yellow Swimsuit Will Make Your Summer out of Thi...](https://fashion.allwomenstalk.com/a-yellow-swimsuit-will-make-your-summer-out-of-this-world/)
 - [30 Office-Ready Outfits for Summer ...](https://fashion.allwomenstalk.com/office-ready-outfits-for-summer/)
-- [summer wrap skirt](https://fashion.allwomenstalk.com/summer-fashion-wrap-skirts-to-add-to-your-closet/)
-- [Best Instagram Summer Looks to Steal ...](https://fashion.allwomenstalk.com/best-instagram-summer-looks-to-steal/)
-- [10 Swimwear Infographics for a Fun Summer](https://fashion.allwomenstalk.com/swimwear-infographics-for-a-fun-summer/)
 - [Tips for Wearing Maxi Dresses during the Hottest M...](https://fashion.allwomenstalk.com/tips-for-wearing-maxi-dresses-during-the-hottest-months-of-the-year/)
+- [A Yellow Swimsuit Will Make Your Summer out of Thi...](https://fashion.allwomenstalk.com/a-yellow-swimsuit-will-make-your-summer-out-of-this-world/)
+- [Best Instagram Summer Looks to Steal ...](https://fashion.allwomenstalk.com/best-instagram-summer-looks-to-steal/)
+- [summer wrap skirt](https://fashion.allwomenstalk.com/summer-fashion-wrap-skirts-to-add-to-your-closet/)
 - [Style Inspiration for the Perfect Day at the Beach...](https://fashion.allwomenstalk.com/style-inspiration-for-the-perfect-day-at-the-beach/)
+- [10 Swimwear Infographics for a Fun Summer](https://fashion.allwomenstalk.com/swimwear-infographics-for-a-fun-summer/)
 - [21 Lacy Dresses to Make Your Summer as Perfect as ...](https://fashion.allwomenstalk.com/lacy-dresses-to-make-your-summer-as-perfect-as-possible/)
+- [How to Add Some Fun to Your Summer Wardrobe ...](https://fashion.allwomenstalk.com/how-to-add-some-fun-to-your-summer-wardrobe/)
 - [7 Adorable Bow Flats for Summer ...](https://shoes.allwomenstalk.com/adorable-bow-flats-for-summer/)
 - [7 Dressy Flips Flops to Wear on a Date This Summer...](https://shoes.allwomenstalk.com/dressy-flips-flops-to-wear-on-a-date-this-summer/)
 

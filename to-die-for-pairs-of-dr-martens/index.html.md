@@ -62,16 +62,16 @@ When you buy a pair of Docs, you're buying shoes that are durable but dynamic, f
 
 ## Related Posts
 
-- [side cut out flats](https://shoes.allwomenstalk.com/colourful-flat-shoes-under-50-to-brighten-up-your-day/)
-- [jeffrey cambells](https://shoes.allwomenstalk.com/must-have-jeffrey-campbell-shoes/)
-- [unique womens heels](https://shoes.allwomenstalk.com/creative-high-heels/)
+- [how to walk in platforms](https://shoes.allwomenstalk.com/lessons-on-how-to-walk-in-heels/)
+- [cute heels for juniors](https://shoes.allwomenstalk.com/classy-heels-for-girls-still-in-middle-and-high-school/)
 - [gold heeels](https://shoes.allwomenstalk.com/metallic-heels-to-glam-up-your-outfit-this-season/)
 - [how to style chanel slingbacks](https://shoes.allwomenstalk.com/elegant-slingback-shoes-to-wear-with-your-everyday-outfits/)
-- [cute heels for juniors](https://shoes.allwomenstalk.com/classy-heels-for-girls-still-in-middle-and-high-school/)
-- [cheap quality shoes](https://shoes.allwomenstalk.com/marvelous-websites-for-inexpensive-quality-shoes/)
 - [how to make ballet shoes](https://diy.allwomenstalk.com/incredibly-adorable-ways-to-give-ballet-flats-a-makeover/)
-- [how to walk in platforms](https://shoes.allwomenstalk.com/lessons-on-how-to-walk-in-heels/)
+- [jeffrey cambells](https://shoes.allwomenstalk.com/must-have-jeffrey-campbell-shoes/)
+- [cheap quality shoes](https://shoes.allwomenstalk.com/marvelous-websites-for-inexpensive-quality-shoes/)
+- [unique womens heels](https://shoes.allwomenstalk.com/creative-high-heels/)
 - [comfy but cute shoes](https://fashion.allwomenstalk.com/cute-and-comfy-shoes-to-check-out/)
+- [side cut out flats](https://shoes.allwomenstalk.com/colourful-flat-shoes-under-50-to-brighten-up-your-day/)
 - [8 Fabulous Green Marni High Heels ...](https://shoes.allwomenstalk.com/fabulous-green-marni-high-heels/)
 - [8 Hot Black Versace High Heels ...](https://shoes.allwomenstalk.com/hot-black-versace-high-heels/)
 

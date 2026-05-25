@@ -56,16 +56,16 @@ These 7 types of comfy shoes will help you hit class in style. Which pairs do yo
 
 ## Related Posts
 
-- [shoes for new years eve](https://shoes.allwomenstalk.com/sparkling-new-years-eve-shoes/)
-- [high heels tips](https://shoes.allwomenstalk.com/superb-tips-on-wearing-high-heels/)
+- [popular shoes for girls](https://shoes.allwomenstalk.com/best-workout-shoes-for-teenage-girls/)
+- [how to clean dolce and gabbana shoes](https://shoes.allwomenstalk.com/care-tips-for-high-end-designer-shoes/)
 - [black little mermaid shoes](https://shoes.allwomenstalk.com/little-mermaid-inspired-shoes/)
 - [sleeping beauty heels](https://shoes.allwomenstalk.com/sleeping-beauty-inspired-shoes/)
-- [neon flats](https://shoes.allwomenstalk.com/funky-neon-flats/)
-- [how to clean dolce and gabbana shoes](https://shoes.allwomenstalk.com/care-tips-for-high-end-designer-shoes/)
-- [popular shoes for girls](https://shoes.allwomenstalk.com/best-workout-shoes-for-teenage-girls/)
 - [best lbd](https://shoes.allwomenstalk.com/best-shoes-for-your-lbd/)
+- [high heels tips](https://shoes.allwomenstalk.com/superb-tips-on-wearing-high-heels/)
 - [cinderella shoes](https://shoes.allwomenstalk.com/cinderella-inspired-shoes/)
 - [fabulous flats](https://shoes.allwomenstalk.com/fabulous-flats-under-20/)
+- [neon flats](https://shoes.allwomenstalk.com/funky-neon-flats/)
+- [shoes for new years eve](https://shoes.allwomenstalk.com/sparkling-new-years-eve-shoes/)
 - [7 Stylish Sneakers ...](https://shoes.allwomenstalk.com/7-stylish-sneakers/)
 - [7 Fashionable Black Flat Shoes for Every Day ...](https://shoes.allwomenstalk.com/fashionable-black-flat-shoes-for-every-day/)
 

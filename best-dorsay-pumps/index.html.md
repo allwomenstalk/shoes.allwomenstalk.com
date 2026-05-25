@@ -112,16 +112,16 @@ Forget diamonds. Shoes are a girl’s best friend (and can be just as expensive)
 
 ## Related Posts
 
-- [2 Die 4: Sergio Rossi Red Patent Booties ...](https://allwomenstalk.com/2-die-4-sergio-rossi-red-patent-booties/)
-- [2 Die 4: Nicholas Kirkwood Fluro Python Lace-up Sa...](https://allwomenstalk.com/2-die-4-nicholas-kirkwood-fluro-python-lace-up-sandals/)
-- [lk bennett shilo shoes](https://shoes.allwomenstalk.com/best-nude-pumps/)
-- [Lauren Ralph Lauren Jayel Pump](https://allwomenstalk.com/lauren-ralph-lauren-jayel-pump/)
 - [9 Gorgeous T-Strap Shoes ...](https://allwomenstalk.com/9-gorgeous-t-strap-shoes/)
 - [4 inch black heels](https://allwomenstalk.com/7-gorgeous-pairs-of-black-heels/)
-- [manolo blahniks](https://shoes.allwomenstalk.com/expensive-but-beautiful-manolo-blahnik-shoes/)
+- [2 Die 4: Sergio Rossi Red Patent Booties ...](https://allwomenstalk.com/2-die-4-sergio-rossi-red-patent-booties/)
+- [2 Die 4: Sergio Rossi Suede Boots](https://allwomenstalk.com/2-die-4-sergio-rossi-suede-boots/)
+- [2 Die 4: Nicholas Kirkwood Fluro Python Lace-up Sa...](https://allwomenstalk.com/2-die-4-nicholas-kirkwood-fluro-python-lace-up-sandals/)
+- [Lauren Ralph Lauren Jayel Pump](https://allwomenstalk.com/lauren-ralph-lauren-jayel-pump/)
 - [minnie slang](https://shoes.allwomenstalk.com/stunning-shoes-by-milly-j-designer-extraordinaire/)
 - [stuart weitzman bridal](https://shoes.allwomenstalk.com/elegant-bridal-and-evening-shoes-from-stuart-weitzman/)
-- [2 Die 4: Sergio Rossi Suede Boots](https://allwomenstalk.com/2-die-4-sergio-rossi-suede-boots/)
+- [manolo blahniks](https://shoes.allwomenstalk.com/expensive-but-beautiful-manolo-blahnik-shoes/)
+- [lk bennett shilo shoes](https://shoes.allwomenstalk.com/best-nude-pumps/)
 - [16 Glamorous Gray Pierre Hardy High Heels ...](https://shoes.allwomenstalk.com/glamorous-gray-pierre-hardy-high-heels/)
 - [8 Peep-Toe Pumps ...](https://shoes.allwomenstalk.com/8-peep-toe-pumps/)
 

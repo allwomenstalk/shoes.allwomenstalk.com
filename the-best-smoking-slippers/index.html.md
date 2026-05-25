@@ -118,16 +118,16 @@ How will you wear your smoking slippers? They go easily from work to a night on 
 
 ## Related Posts
 
-- [best exercise sneakers](https://shoes.allwomenstalk.com/best-fitness-shoes-to-ask-for-this-christmas/)
-- [d orsay sandals](https://shoes.allwomenstalk.com/best-dorsay-flats/)
-- [different types of shoes for ladies](https://shoes.allwomenstalk.com/essential-types-of-shoes-all-women-should-have/)
-- [leopard print calf hair pumps](https://shoes.allwomenstalk.com/best-calf-hair-pumps/)
-- [can you wear ankle boots in the summer](https://shoes.allwomenstalk.com/ways-to-make-ankle-boots-work-for-you/)
-- [health benefits of leather shoes](https://shoes.allwomenstalk.com/benefits-of-natural-leather-to-consider-when-buying-footwear/)
-- [brown womens ankle boots](https://shoes.allwomenstalk.com/best-brown-ankle-boots/)
 - [new years eve heels](https://shoes.allwomenstalk.com/cute-flats-for-new-years-eve-and-beyond/)
+- [leopard print calf hair pumps](https://shoes.allwomenstalk.com/best-calf-hair-pumps/)
 - [menswear inspired shoes](https://shoes.allwomenstalk.com/menswear-style-shoes-you-can-wear-with-your-ladylike-outfits/)
 - [which shoes give the most height](https://shoes.allwomenstalk.com/great-shoes-that-boost-your-height-and-confidence-levels/)
+- [health benefits of leather shoes](https://shoes.allwomenstalk.com/benefits-of-natural-leather-to-consider-when-buying-footwear/)
+- [d orsay sandals](https://shoes.allwomenstalk.com/best-dorsay-flats/)
+- [best exercise sneakers](https://shoes.allwomenstalk.com/best-fitness-shoes-to-ask-for-this-christmas/)
+- [can you wear ankle boots in the summer](https://shoes.allwomenstalk.com/ways-to-make-ankle-boots-work-for-you/)
+- [brown womens ankle boots](https://shoes.allwomenstalk.com/best-brown-ankle-boots/)
+- [different types of shoes for ladies](https://shoes.allwomenstalk.com/essential-types-of-shoes-all-women-should-have/)
 - [8 Stylish Suede Shoes ...](https://shoes.allwomenstalk.com/8-stylish-suede-shoes/)
 - [9 Cute Flip-Flops ...](https://shoes.allwomenstalk.com/cute-flip-flops/)
 

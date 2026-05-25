@@ -64,16 +64,16 @@ Whether you prefer flirty florals or good old animal print, these printed pumps 
 
 ## Related Posts
 
-- [oxford bootie](https://shoes.allwomenstalk.com/beautiful-oxford-booties/)
 - [sparkly bow flats](https://shoes.allwomenstalk.com/party-perfect-sparkly-ballet-flats/)
-- [dior flower heels](https://shoes.allwomenstalk.com/pretty-high-heel-party-shoes-to-rock/)
-- [orsay leather jacket](https://shoes.allwomenstalk.com/best-dorsay-pumps/)
-- [fun floral heels](https://shoes.allwomenstalk.com/gorgeous-floral-patterned-heels-for-spring/)
-- [womens metallic sandals](https://shoes.allwomenstalk.com/best-metallic-sandals/)
-- [unique silver shoes](https://shoes.allwomenstalk.com/sleek-and-stylish-silver-shoes/)
-- [rinowrap](https://shoes.allwomenstalk.com/trendy-oxblood-booties/)
-- [elegant white shoes](https://shoes.allwomenstalk.com/elegant-black-and-white-shoes/)
+- [oxford bootie](https://shoes.allwomenstalk.com/beautiful-oxford-booties/)
 - [capelta](https://shoes.allwomenstalk.com/daring-black-gladiator-boots/)
+- [orsay leather jacket](https://shoes.allwomenstalk.com/best-dorsay-pumps/)
+- [elegant white shoes](https://shoes.allwomenstalk.com/elegant-black-and-white-shoes/)
+- [womens metallic sandals](https://shoes.allwomenstalk.com/best-metallic-sandals/)
+- [rinowrap](https://shoes.allwomenstalk.com/trendy-oxblood-booties/)
+- [dior flower heels](https://shoes.allwomenstalk.com/pretty-high-heel-party-shoes-to-rock/)
+- [unique silver shoes](https://shoes.allwomenstalk.com/sleek-and-stylish-silver-shoes/)
+- [fun floral heels](https://shoes.allwomenstalk.com/gorgeous-floral-patterned-heels-for-spring/)
 - [8 Cute Sequined Ballet Flats ...](https://shoes.allwomenstalk.com/8-cute-sequined-ballet-flats/)
 - [8 Peep-Toe Pumps ...](https://shoes.allwomenstalk.com/8-peep-toe-pumps/)
 

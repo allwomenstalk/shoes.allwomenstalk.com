@@ -150,16 +150,16 @@ I don't wear heels often, but when I do, I want them to be pretty, comfortable, 
 
 ## Related Posts
 
-- [christmas high heels](https://shoes.allwomenstalk.com/hottest-heels-to-wear-to-christmas-and-new-year-parties/)
-- [best shoes for prom](https://shoes.allwomenstalk.com/put-your-best-foot-forward-with-the-hot-prom-shoes-of/)
 - [shoes 101](https://shoes.allwomenstalk.com/what-does-your-shoe-style-say-about-you/)
 - [big feet women](https://shoes.allwomenstalk.com/this-summers-sexiest-sandals-ever-for-girls-with-big-feet/)
-- [jimmy choo lace up boots](https://shoes.allwomenstalk.com/hottest-jimmy-choo-boots-on-sale-right-now/)
-- [zappos tuxedo shoes](https://shoes.allwomenstalk.com/hottest-white-shoes-its-okay-to-wear-now/)
-- [cinderella flat shoes](https://shoes.allwomenstalk.com/cinderella-shoes-for-girls-who-are-going-to-the-ball/)
-- [poular shoes](https://shoes.allwomenstalk.com/insanely-stylish-shoes-to-fill-your-closet-with-this-season/)
-- [fall designer shoes](https://shoes.allwomenstalk.com/these-are-the-must-have-shoe-styles-for-this-fall/)
+- [best shoes for prom](https://shoes.allwomenstalk.com/put-your-best-foot-forward-with-the-hot-prom-shoes-of/)
 - [high heels to flats](https://shoes.allwomenstalk.com/perfect-first-pair-of-heels-to-buy-for-girls-who-always-wear-flats/)
+- [fall designer shoes](https://shoes.allwomenstalk.com/these-are-the-must-have-shoe-styles-for-this-fall/)
+- [cinderella flat shoes](https://shoes.allwomenstalk.com/cinderella-shoes-for-girls-who-are-going-to-the-ball/)
+- [zappos tuxedo shoes](https://shoes.allwomenstalk.com/hottest-white-shoes-its-okay-to-wear-now/)
+- [christmas high heels](https://shoes.allwomenstalk.com/hottest-heels-to-wear-to-christmas-and-new-year-parties/)
+- [jimmy choo lace up boots](https://shoes.allwomenstalk.com/hottest-jimmy-choo-boots-on-sale-right-now/)
+- [poular shoes](https://shoes.allwomenstalk.com/insanely-stylish-shoes-to-fill-your-closet-with-this-season/)
 - [17 Glamorous Brown Fendi High Heels ...](https://shoes.allwomenstalk.com/glamorous-brown-fendi-high-heels/)
 - [17 Beautiful Black Christian Louboutin High Heels ...](https://shoes.allwomenstalk.com/beautiful-black-christian-louboutin-high-heels/)
 

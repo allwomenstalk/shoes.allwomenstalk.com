@@ -168,16 +168,16 @@ It might be 15 years (eek! really? yes really!) since Russell Crowe as Maximus D
 
 ## Related Posts
 
-- [high heels you can wear all day](https://shoes.allwomenstalk.com/how-to-wear-high-heels-without-damaging-your-feet/)
-- [bling flipflops](https://shoes.allwomenstalk.com/get-ready-for-some-bling-pairs-of-jeweled-flip-flops-to-wear-all-summer-long/)
-- [neon colored shoes](https://shoes.allwomenstalk.com/super-cool-pairs-of-neon-running-shoes-to-motivate-you/)
 - [shoes to add height for amusement park](https://shoes.allwomenstalk.com/types-of-shoes-every-woman-needs-for-summer/)
+- [bling flipflops](https://shoes.allwomenstalk.com/get-ready-for-some-bling-pairs-of-jeweled-flip-flops-to-wear-all-summer-long/)
+- [how to make sandals more comfortable](https://shoes.allwomenstalk.com/make-your-sandals-and-flip-flops-feel-comfy/)
+- [high heels you can wear all day](https://shoes.allwomenstalk.com/how-to-wear-high-heels-without-damaging-your-feet/)
 - [sweaty teen feet](https://beauty.allwomenstalk.com/keep-your-feet-free-from-stink-and-sweat/)
 - [need those sneakers](https://shoes.allwomenstalk.com/you-need-these-sneakers-in-your-closet/)
-- [frye parker boots](https://shoes.allwomenstalk.com/must-have-lace-up-boots-for-fall/)
-- [how to make sandals more comfortable](https://shoes.allwomenstalk.com/make-your-sandals-and-flip-flops-feel-comfy/)
 - [black summer sandal](https://shoes.allwomenstalk.com/pairs-of-black-summer-sandals-that-will-drop-your-jaw/)
+- [frye parker boots](https://shoes.allwomenstalk.com/must-have-lace-up-boots-for-fall/)
 - [beach themed ankle bracelet](https://jewelry.allwomenstalk.com/show-your-toes-some-love-wear-some-of-these-bits-of-beach-jewelry-for-your-feet/)
+- [neon colored shoes](https://shoes.allwomenstalk.com/super-cool-pairs-of-neon-running-shoes-to-motivate-you/)
 - [Repeat Trend- Gladiator Sandals Also Pockets ...](https://allwomenstalk.com/repeat-trend-gladiator-sandals-also-pockets/)
 - [9 Stylish Strappy Heeled Sandals ...](https://shoes.allwomenstalk.com/stylish-strappy-heeled-sandals/)
 

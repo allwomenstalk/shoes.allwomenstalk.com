@@ -60,16 +60,16 @@ These are only a few, I'm sure there are plenty more cute platform pumps on Just
 
 ## Related Posts
 
-- [boots for women under 200](https://fashion.allwomenstalk.com/ladies-boots-and-how-to-wear-them/)
-- [peep toe pumps](https://shoes.allwomenstalk.com/playful-peep-toe-pumps/)
-- [comfy but cute shoes](https://fashion.allwomenstalk.com/cute-and-comfy-shoes-to-check-out/)
-- [hit or miss trend](https://shoes.allwomenstalk.com/new-see-through-shoes-hit-or-miss/)
+- [dr martens ballet shoes](https://shoes.allwomenstalk.com/to-die-for-pairs-of-dr-martens/)
 - [world famous shoes brand name](https://shoes.allwomenstalk.com/of-the-most-popular-shoe-brands-in-the-world/)
 - [best street style shoes](https://streetstyle.allwomenstalk.com/great-street-style-shoes/)
-- [quirky converse](https://shoes.allwomenstalk.com/cool-converse-sneakers/)
-- [dr martens ballet shoes](https://shoes.allwomenstalk.com/to-die-for-pairs-of-dr-martens/)
-- [silver sparkle shoes](https://shoes.allwomenstalk.com/shiny-and-stylish-silver-shoes/)
 - [captoe flat](https://shoes.allwomenstalk.com/pretty-pairs-of-cap-toe-flats/)
+- [comfy but cute shoes](https://fashion.allwomenstalk.com/cute-and-comfy-shoes-to-check-out/)
+- [quirky converse](https://shoes.allwomenstalk.com/cool-converse-sneakers/)
+- [boots for women under 200](https://fashion.allwomenstalk.com/ladies-boots-and-how-to-wear-them/)
+- [hit or miss trend](https://shoes.allwomenstalk.com/new-see-through-shoes-hit-or-miss/)
+- [peep toe pumps](https://shoes.allwomenstalk.com/playful-peep-toe-pumps/)
+- [silver sparkle shoes](https://shoes.allwomenstalk.com/shiny-and-stylish-silver-shoes/)
 - [8 Peep-Toe Pumps ...](https://shoes.allwomenstalk.com/8-peep-toe-pumps/)
 - [8 Pretty Platform Shoes ...](https://shoes.allwomenstalk.com/pretty-platform-shoes/)
 

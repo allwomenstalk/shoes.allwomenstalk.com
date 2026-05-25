@@ -68,15 +68,15 @@ Were you as enchanted by these nine pairs of Disney-inspired Toms as I was? Do y
 
 ## Related Posts
 
-- [song new shoes](https://shoes.allwomenstalk.com/songs-about-shoes/)
+- [loved shoes](https://celebs.allwomenstalk.com/most-loved-shoes-by-celebrities/)
 - [stretch dr martens boots](https://shoes.allwomenstalk.com/safe-ways-to-stretch-too-small-shoes/)
-- [date night sandals](https://shoes.allwomenstalk.com/stylish-date-night-flats/)
-- [blue platform mary janes](https://shoes.allwomenstalk.com/marvelous-mary-jane-shoes/)
 - [silver sneaker wedges](https://shoes.allwomenstalk.com/adorable-sneaker-wedges/)
+- [date night sandals](https://shoes.allwomenstalk.com/stylish-date-night-flats/)
+- [how to make rain boots shiny again](https://shoes.allwomenstalk.com/steps-to-care-for-your-wellies-and-make-them-last/)
+- [blue platform mary janes](https://shoes.allwomenstalk.com/marvelous-mary-jane-shoes/)
 - [new season shoes](https://shoes.allwomenstalk.com/new-season-nude-shoes/)
 - [stylish spring sandals](https://shoes.allwomenstalk.com/stylish-sandals-for-spring/)
-- [how to make rain boots shiny again](https://shoes.allwomenstalk.com/steps-to-care-for-your-wellies-and-make-them-last/)
-- [loved shoes](https://celebs.allwomenstalk.com/most-loved-shoes-by-celebrities/)
+- [song new shoes](https://shoes.allwomenstalk.com/songs-about-shoes/)
 - [8 espadrilles](https://shoes.allwomenstalk.com/stylish-espadrilles-for-spring-and-summer/)
 - [9 Cut-out Detail Shoes ...](https://shoes.allwomenstalk.com/9-cut-out-detail-shoes/)
 - [7 Pretty Espadrilles ...](https://shoes.allwomenstalk.com/7-pretty-espadrilles/)

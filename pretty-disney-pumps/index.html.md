@@ -62,16 +62,16 @@ These are eight of my favorite Disney pumps on the ‘Net! Which ones would you 
 
 ## Related Posts
 
-- [best tv show friendships](https://movies.allwomenstalk.com/of-the-best-tv-friendships/)
-- [why is minkus not in season 2](https://movies.allwomenstalk.com/tv-characters-that-disappeared-without-explination/)
 - [loreal paris riche stylo smoldering](https://movies.allwomenstalk.com/worst-series-finales/)
-- [fresh pronce of bell air](https://movies.allwomenstalk.com/best-reruns-to-watch-when-you-get-home-from-school/)
-- [denny ducette](https://movies.allwomenstalk.com/tv-moments-that-made-me-cry-like-a-baby/)
+- [best tv show friendships](https://movies.allwomenstalk.com/of-the-best-tv-friendships/)
 - [top chef: just desserts scandal](https://movies.allwomenstalk.com/fab-competition-tv-shows-that-are-amazing-to-watch/)
 - [bill murray funniest movies](https://movies.allwomenstalk.com/brilliant-bill-murray-characters/)
-- [saturday night live stuart smalley](https://movies.allwomenstalk.com/priceless-snl-sketches/)
-- [house md character](https://movies.allwomenstalk.com/of-the-most-annoying-tv-characters/)
 - [worst spinoffs](https://movies.allwomenstalk.com/worst-tv-spinoffs-of-all-time/)
+- [saturday night live stuart smalley](https://movies.allwomenstalk.com/priceless-snl-sketches/)
+- [why is minkus not in season 2](https://movies.allwomenstalk.com/tv-characters-that-disappeared-without-explination/)
+- [house md character](https://movies.allwomenstalk.com/of-the-most-annoying-tv-characters/)
+- [fresh pronce of bell air](https://movies.allwomenstalk.com/best-reruns-to-watch-when-you-get-home-from-school/)
+- [denny ducette](https://movies.allwomenstalk.com/tv-moments-that-made-me-cry-like-a-baby/)
 - [8 Cute Sequined Ballet Flats ...](https://shoes.allwomenstalk.com/8-cute-sequined-ballet-flats/)
 - [8 Peep-Toe Pumps ...](https://shoes.allwomenstalk.com/8-peep-toe-pumps/)
 

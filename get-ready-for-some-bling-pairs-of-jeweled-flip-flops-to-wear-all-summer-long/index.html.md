@@ -209,16 +209,16 @@ Which ones are you dying to have? What will you wear them with?
 
 ## Related Posts
 
-- [sweaty teen feet](https://beauty.allwomenstalk.com/keep-your-feet-free-from-stink-and-sweat/)
-- [outfit with ankle boots](https://shoes.allwomenstalk.com/these-celebs-offer-up-some-ways-to-wear-ankle-boots/)
 - [open toe tall boots](https://shoes.allwomenstalk.com/which-of-these-ways-will-you-wear-peep-toe-booties-this-fall/)
-- [beach themed ankle bracelet](https://jewelry.allwomenstalk.com/show-your-toes-some-love-wear-some-of-these-bits-of-beach-jewelry-for-your-feet/)
-- [high heels you can wear all day](https://shoes.allwomenstalk.com/how-to-wear-high-heels-without-damaging-your-feet/)
+- [outfit with ankle boots](https://shoes.allwomenstalk.com/these-celebs-offer-up-some-ways-to-wear-ankle-boots/)
+- [need those sneakers](https://shoes.allwomenstalk.com/you-need-these-sneakers-in-your-closet/)
 - [peep toe boots for girls](https://shoes.allwomenstalk.com/hello-toes-check-out-these-peep-toe-booties-to-take-you-from-summer-to-fall/)
 - [frye parker boots](https://shoes.allwomenstalk.com/must-have-lace-up-boots-for-fall/)
-- [neon colored shoes](https://shoes.allwomenstalk.com/super-cool-pairs-of-neon-running-shoes-to-motivate-you/)
-- [need those sneakers](https://shoes.allwomenstalk.com/you-need-these-sneakers-in-your-closet/)
+- [beach themed ankle bracelet](https://jewelry.allwomenstalk.com/show-your-toes-some-love-wear-some-of-these-bits-of-beach-jewelry-for-your-feet/)
+- [sweaty teen feet](https://beauty.allwomenstalk.com/keep-your-feet-free-from-stink-and-sweat/)
 - [kitten heels meaning](https://shoes.allwomenstalk.com/these-shoes-give-new-meaning-to-kitten-heels/)
+- [high heels you can wear all day](https://shoes.allwomenstalk.com/how-to-wear-high-heels-without-damaging-your-feet/)
+- [neon colored shoes](https://shoes.allwomenstalk.com/super-cool-pairs-of-neon-running-shoes-to-motivate-you/)
 - [Shoe Bling ...](https://allwomenstalk.com/shoe-bling/)
 - [9 Trendy and Colorful Summer Sandals ...](https://shoes.allwomenstalk.com/trendy-and-colorful-summer-sandals/)
 

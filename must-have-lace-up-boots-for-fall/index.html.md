@@ -158,16 +158,16 @@ Source: [Forest Cabin Lace-Up Boots In](http://shopruche.com/maintenance.html)
 
 ## Related Posts
 
+- [how to break in leather boots](https://shoes.allwomenstalk.com/how-to-break-in-your-new-boots/)
 - [peep toe boots for girls](https://shoes.allwomenstalk.com/hello-toes-check-out-these-peep-toe-booties-to-take-you-from-summer-to-fall/)
-- [open toe tall boots](https://shoes.allwomenstalk.com/which-of-these-ways-will-you-wear-peep-toe-booties-this-fall/)
 - [boots made for walking gif](https://shoes.allwomenstalk.com/dont-make-these-mistakes-with-your-winter-boots/)
-- [luisa via roma loafers and moccasins](https://shoes.allwomenstalk.com/pairs-of-loafers-youll-love-to-walk-around-town-in/)
+- [outfit with ankle boots](https://shoes.allwomenstalk.com/these-celebs-offer-up-some-ways-to-wear-ankle-boots/)
 - [how to soothe feet after wearing heels](https://shoes.allwomenstalk.com/how-to-soothe-your-feet-after-wearing-heels/)
 - [kitten heels meaning](https://shoes.allwomenstalk.com/these-shoes-give-new-meaning-to-kitten-heels/)
-- [how to break in leather boots](https://shoes.allwomenstalk.com/how-to-break-in-your-new-boots/)
-- [outfit with ankle boots](https://shoes.allwomenstalk.com/these-celebs-offer-up-some-ways-to-wear-ankle-boots/)
+- [luisa via roma loafers and moccasins](https://shoes.allwomenstalk.com/pairs-of-loafers-youll-love-to-walk-around-town-in/)
 - [heels hack](https://shoes.allwomenstalk.com/do-these-things-before-buying-a-pair-of-heels/)
 - [how to keep shoes from dry rotting](https://shoes.allwomenstalk.com/ways-to-keep-your-shoes-looking-like-new/)
+- [open toe tall boots](https://shoes.allwomenstalk.com/which-of-these-ways-will-you-wear-peep-toe-booties-this-fall/)
 - [8 Stylish Slip on Boots to Try on ...](https://shoes.allwomenstalk.com/stylish-slip-on-boots-to-try-on/)
 - [5 Must Have-Shoes for Autumn ...](https://fashion.allwomenstalk.com/must-have-shoes-for-autumn/)
 

@@ -44,16 +44,16 @@ Top Photo Credit: [Andrea Rinaldi](https://www.flickr.com/photos/rinaldi/2377789
 
 ## Related Posts
 
-- [7 Glitter-Finish Shoes ...](https://shoes.allwomenstalk.com/7-glitter-finish-shoes/)
-- [7 Gorgeous Shoes by Chelsea Crew ...](https://shoes.allwomenstalk.com/gorgeous-shoes-by-chelsea-crew/)
-- [boots with studs](https://shoes.allwomenstalk.com/8-hottest-studded-boots/)
-- [lucky penny shoes](https://shoes.allwomenstalk.com/pretty-sandals-by-lucky-penny/)
 - [8 Ankle Strap Shoes ...](https://shoes.allwomenstalk.com/ankle-strap-shoes/)
-- [poetic justice shoes](https://shoes.allwomenstalk.com/7-cute-shoes-by-poetic-license/)
-- [flatforms shoes](https://shoes.allwomenstalk.com/flatform-shoes/)
-- [romantic instagram couple goals](https://shoes.allwomenstalk.com/8-shoes-that-make-me-drool/)
-- [fabshoes](https://shoes.allwomenstalk.com/fab-shoes-with-fringe/)
+- [boots with studs](https://shoes.allwomenstalk.com/8-hottest-studded-boots/)
 - [8 Hot High Heels That Make Me Think of Spring ...](https://shoes.allwomenstalk.com/8-hot-high-heels-that-make-me-think-of-spring/)
+- [poetic justice shoes](https://shoes.allwomenstalk.com/7-cute-shoes-by-poetic-license/)
+- [7 Glitter-Finish Shoes ...](https://shoes.allwomenstalk.com/7-glitter-finish-shoes/)
+- [flatforms shoes](https://shoes.allwomenstalk.com/flatform-shoes/)
+- [fabshoes](https://shoes.allwomenstalk.com/fab-shoes-with-fringe/)
+- [7 Gorgeous Shoes by Chelsea Crew ...](https://shoes.allwomenstalk.com/gorgeous-shoes-by-chelsea-crew/)
+- [lucky penny shoes](https://shoes.allwomenstalk.com/pretty-sandals-by-lucky-penny/)
+- [romantic instagram couple goals](https://shoes.allwomenstalk.com/8-shoes-that-make-me-drool/)
 - [7 Gorgeously Sexy Ways to Wear Nude Shoes ...](https://shoes.allwomenstalk.com/gorgeously-sexy-ways-to-wear-nude-shoes/)
 - [7 Tips on How to Wear Wedge Boots ...](https://shoes.allwomenstalk.com/tips-on-how-to-wear-wedge-boots/)
 

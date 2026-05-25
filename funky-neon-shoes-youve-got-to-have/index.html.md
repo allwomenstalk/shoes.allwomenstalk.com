@@ -150,15 +150,15 @@ Top Image Source: [pinterest.com](https://www.pinterest.com/pin/5981411975336594
 
 ## Related Posts
 
-- [sneakers wedge shoes](https://shoes.allwomenstalk.com/sporty-wedge-sneakers-for-that-sporty-trend/)
-- [emitaz age](https://shoes.allwomenstalk.com/adorable-shoes-to-wear-to-a-date-this-fall/)
-- [party shoes for womens](https://shoes.allwomenstalk.com/gorgeous-shoes-for-a-fab-garden-party/)
-- [what to do with new shoes](https://shoes.allwomenstalk.com/tips-for-wearing-in-new-shoes/)
 - [wedge summer heels](https://shoes.allwomenstalk.com/statement-wedge-shoes-to-splurge-on-this-summer/)
-- [bow flats](https://shoes.allwomenstalk.com/adorable-bow-flats-for-summer/)
-- [socks with heels](https://shoes.allwomenstalk.com/cute-socks-to-show-off-in-high-heel-shoes/)
+- [sneakers wedge shoes](https://shoes.allwomenstalk.com/sporty-wedge-sneakers-for-that-sporty-trend/)
 - [all brand of shoes](https://shoes.allwomenstalk.com/shoe-brands-that-give-back/)
+- [what to do with new shoes](https://shoes.allwomenstalk.com/tips-for-wearing-in-new-shoes/)
+- [emitaz age](https://shoes.allwomenstalk.com/adorable-shoes-to-wear-to-a-date-this-fall/)
+- [socks with heels](https://shoes.allwomenstalk.com/cute-socks-to-show-off-in-high-heel-shoes/)
 - [new cool sneakers](https://shoes.allwomenstalk.com/cool-sneakers-you-need-now/)
+- [bow flats](https://shoes.allwomenstalk.com/adorable-bow-flats-for-summer/)
+- [party shoes for womens](https://shoes.allwomenstalk.com/gorgeous-shoes-for-a-fab-garden-party/)
 - [dance heels for everyday wear](https://shoes.allwomenstalk.com/comfy-heels-to-wear-to-the-office/)
 - [7 Stylish Sneakers ...](https://shoes.allwomenstalk.com/7-stylish-sneakers/)
 - [8 Animal Print Shoes Youll Love ...](https://shoes.allwomenstalk.com/animal-print-shoes-youll-love/)

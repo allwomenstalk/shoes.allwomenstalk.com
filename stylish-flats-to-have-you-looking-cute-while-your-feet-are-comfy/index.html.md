@@ -158,16 +158,16 @@ It's time to go shopping! What was your favorite pair of stylish flats to keep y
 
 ## Related Posts
 
-- [black friday deals walking boots](https://shoes.allwomenstalk.com/best-black-friday-deals-on-designer-boots/)
 - [comfortable mid heels](https://shoes.allwomenstalk.com/why-the-mid-heel-is-the-best-height-out-there/)
+- [black friday deals walking boots](https://shoes.allwomenstalk.com/best-black-friday-deals-on-designer-boots/)
 - [walk in heels for beginners](https://fashion.allwomenstalk.com/essential-tips-to-walking-in-heels-for-the-modern-day-woman/)
-- [expensive nursing shoes](https://shoes.allwomenstalk.com/how-to-choose-the-right-nursing-shoes-for-all-the-nurses-out-there/)
 - [shoes every girl needs](https://shoes.allwomenstalk.com/secrets-that-every-woman-needs-to-know-when-buying-work-shoes/)
-- [myers briggs shoe](https://shoes.allwomenstalk.com/what-your-favourite-shoe-type-says-about-your-personality/)
-- [langria storage cubes](https://lifestyle.allwomenstalk.com/langria-shoe-storage-cubes/)
-- [how to wear pumps without pain](https://shoes.allwomenstalk.com/how-to-wear-high-heels-without-pain/)
-- [soles gif](https://beauty.allwomenstalk.com/brilliant-ways-to-keep-your-feet-healthy-and-beautiful/)
+- [expensive nursing shoes](https://shoes.allwomenstalk.com/how-to-choose-the-right-nursing-shoes-for-all-the-nurses-out-there/)
 - [how to pick workout shoes](https://shoes.allwomenstalk.com/tips-to-finding-the-best-workout-shoes/)
+- [how to wear pumps without pain](https://shoes.allwomenstalk.com/how-to-wear-high-heels-without-pain/)
+- [myers briggs shoe](https://shoes.allwomenstalk.com/what-your-favourite-shoe-type-says-about-your-personality/)
+- [soles gif](https://beauty.allwomenstalk.com/brilliant-ways-to-keep-your-feet-healthy-and-beautiful/)
+- [langria storage cubes](https://lifestyle.allwomenstalk.com/langria-shoe-storage-cubes/)
 - [7 Cute Summer Flat Shoes Youll Love ...](https://shoes.allwomenstalk.com/cute-summer-flat-shoes-youll-love/)
 - [8 Stylish Low-Heel Shoes You Can Wear Every Day .....](https://shoes.allwomenstalk.com/stylish-low-heel-shoes-you-can-wear-every-day/)
 

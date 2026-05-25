@@ -55,16 +55,16 @@ These are just a handful of the gorgeous heels, platforms, sandals, and flats of
 
 ## Related Posts
 
-- [best ballerina shoes](https://shoes.allwomenstalk.com/8-sporty-ballet-flats/)
+- [7 New Season Pointed Shoes ...](https://shoes.allwomenstalk.com/new-season-pointed-shoes/)
+- [gabriella rocha boots](https://shoes.allwomenstalk.com/7-boots-to-buy-that-arent-uggs/)
 - [7 Stylish Sneakers ...](https://shoes.allwomenstalk.com/7-stylish-sneakers/)
 - [sexy sandals](https://shoes.allwomenstalk.com/sexy-pairs-of-sandals-from-zappos/)
 - [7 Terrific Two-Tone Shoes ...](https://shoes.allwomenstalk.com/7-terrific-two-tone-shoes/)
-- [levity](https://shoes.allwomenstalk.com/8-gorgeous-new-shoes-by-levity/)
-- [gabriella rocha boots](https://shoes.allwomenstalk.com/7-boots-to-buy-that-arent-uggs/)
-- [7 New Season Pointed Shoes ...](https://shoes.allwomenstalk.com/new-season-pointed-shoes/)
 - [zappos boat shoes](https://shoes.allwomenstalk.com/fabulous-boat-shoes/)
-- [fashion wellington boots](https://shoes.allwomenstalk.com/stylish-wellington-boots/)
 - [7 Woven-Detail Shoes ...](https://shoes.allwomenstalk.com/woven-detail-shoes/)
+- [levity](https://shoes.allwomenstalk.com/8-gorgeous-new-shoes-by-levity/)
+- [best ballerina shoes](https://shoes.allwomenstalk.com/8-sporty-ballet-flats/)
+- [fashion wellington boots](https://shoes.allwomenstalk.com/stylish-wellington-boots/)
 - [7 Cute Shoes by Poetic License ...](https://shoes.allwomenstalk.com/7-cute-shoes-by-poetic-license/)
 - [8 Cute Shoes by Born ...](https://shoes.allwomenstalk.com/8-cute-shoes-by-born/)
 

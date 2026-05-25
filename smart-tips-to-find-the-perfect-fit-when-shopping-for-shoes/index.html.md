@@ -58,16 +58,16 @@ Shopping for shoes is supposed to be fun, right? Even if you're not a footwear f
 
 ## Related Posts
 
-- [7 Ways to Get Your Feet Ready for Spring Sandals ....](https://beauty.allwomenstalk.com/ways-to-get-your-feet-ready-for-spring-sandals/)
-- [11 Gorgeous Shoes for Spring 2014 ...](https://fashion.allwomenstalk.com/gorgeous-shoes-for-spring/)
-- [7 Best Shoes for Busy Days ...](https://shoes.allwomenstalk.com/best-shoes-for-busy-days/)
-- [7 Fabulously Fashionable Shoes to Wear to Work ...](https://shoes.allwomenstalk.com/fabulously-fashionable-shoes-to-wear-to-work/)
-- [cute summer shoes](https://shoes.allwomenstalk.com/cute-summer-shoes-youve-just-got-to-see/)
-- [7 Tips for Choosing Shoes when Youre Pregnant ...](https://shoes.allwomenstalk.com/tips-for-choosing-shoes-when-youre-pregnant/)
-- [7 Boots for Spring That Youll Fall in Love with .....](https://shoes.allwomenstalk.com/boots-for-spring-that-youll-fall-in-love-with/)
-- [slides that look like feet](https://shoes.allwomenstalk.com/slide-sandals-to-slip-onto-your-feet-right-now/)
 - [paris maximalist eyeshadow vegas](https://shoes.allwomenstalk.com/glittery-shoes-everyone-can-wear/)
+- [7 Ways to Get Your Feet Ready for Spring Sandals ....](https://beauty.allwomenstalk.com/ways-to-get-your-feet-ready-for-spring-sandals/)
+- [cute summer shoes](https://shoes.allwomenstalk.com/cute-summer-shoes-youve-just-got-to-see/)
 - [find the right running shoe](https://running.allwomenstalk.com/tips-for-finding-the-right-running-shoes/)
+- [7 Boots for Spring That Youll Fall in Love with .....](https://shoes.allwomenstalk.com/boots-for-spring-that-youll-fall-in-love-with/)
+- [7 Tips for Choosing Shoes when Youre Pregnant ...](https://shoes.allwomenstalk.com/tips-for-choosing-shoes-when-youre-pregnant/)
+- [slides that look like feet](https://shoes.allwomenstalk.com/slide-sandals-to-slip-onto-your-feet-right-now/)
+- [7 Fabulously Fashionable Shoes to Wear to Work ...](https://shoes.allwomenstalk.com/fabulously-fashionable-shoes-to-wear-to-work/)
+- [7 Best Shoes for Busy Days ...](https://shoes.allwomenstalk.com/best-shoes-for-busy-days/)
+- [11 Gorgeous Shoes for Spring 2014 ...](https://fashion.allwomenstalk.com/gorgeous-shoes-for-spring/)
 - [7 Wonderfully Clever Tips on How to Buy Shoes Onli...](https://shoes.allwomenstalk.com/wonderfully-clever-tips-on-how-to-buy-shoes-online/)
 - [7 Tips for Choosing the Perfect Pair of Jeans ...](https://fashion.allwomenstalk.com/tips-for-choosing-the-perfect-pair-of-jeans/)
 

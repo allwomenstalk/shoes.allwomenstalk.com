@@ -147,14 +147,14 @@ $99.95 at [shop.nordstrom.com](http://shop.nordstrom.com?ref=allwomenstalk.com)
 
 ## Related Posts
 
-- [soles gif](https://beauty.allwomenstalk.com/brilliant-ways-to-keep-your-feet-healthy-and-beautiful/)
-- [how to pick workout shoes](https://shoes.allwomenstalk.com/tips-to-finding-the-best-workout-shoes/)
+- [comfortable mid heels](https://shoes.allwomenstalk.com/why-the-mid-heel-is-the-best-height-out-there/)
+- [langria storage cubes](https://lifestyle.allwomenstalk.com/langria-shoe-storage-cubes/)
 - [does jimmy choo have sales](https://shoes.allwomenstalk.com/hottest-jimmy-choo-shoes-on-sale-right-now/)
 - [floryday shoes and sandals](https://shoes.allwomenstalk.com/summer-shoe-trends-to-give-everyone-else-fashion-envy/)
-- [langria storage cubes](https://lifestyle.allwomenstalk.com/langria-shoe-storage-cubes/)
 - [stylish flats](https://shoes.allwomenstalk.com/stylish-flats-to-have-you-looking-cute-while-your-feet-are-comfy/)
-- [comfortable mid heels](https://shoes.allwomenstalk.com/why-the-mid-heel-is-the-best-height-out-there/)
 - [how to wear pumps without pain](https://shoes.allwomenstalk.com/how-to-wear-high-heels-without-pain/)
+- [how to pick workout shoes](https://shoes.allwomenstalk.com/tips-to-finding-the-best-workout-shoes/)
+- [soles gif](https://beauty.allwomenstalk.com/brilliant-ways-to-keep-your-feet-healthy-and-beautiful/)
 - [myers briggs shoe](https://shoes.allwomenstalk.com/what-your-favourite-shoe-type-says-about-your-personality/)
 - [black friday deals walking boots](https://shoes.allwomenstalk.com/best-black-friday-deals-on-designer-boots/)
 - [9 Designer Shoes That Are Hot This Season ...](https://shoes.allwomenstalk.com/designer-shoes-that-are-hot-this-season/)

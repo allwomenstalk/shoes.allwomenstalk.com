@@ -171,16 +171,16 @@ Falling into the "so ugly they're cute, but so comfy, who cares?" category are t
 
 ## Related Posts
 
-- [fall designer shoes](https://shoes.allwomenstalk.com/these-are-the-must-have-shoe-styles-for-this-fall/)
-- [high heels to flats](https://shoes.allwomenstalk.com/perfect-first-pair-of-heels-to-buy-for-girls-who-always-wear-flats/)
-- [big feet beauty](https://shoes.allwomenstalk.com/beauties-with-big-feet-should-buy-these-stylish-shoes/)
-- [little girl high heel shoes](https://shoes.allwomenstalk.com/high-heels-for-short-girls-who-dont-want-to-fall-down/)
-- [shoes 101](https://shoes.allwomenstalk.com/what-does-your-shoe-style-say-about-you/)
 - [big feet women](https://shoes.allwomenstalk.com/this-summers-sexiest-sandals-ever-for-girls-with-big-feet/)
-- [christmas high heels](https://shoes.allwomenstalk.com/hottest-heels-to-wear-to-christmas-and-new-year-parties/)
 - [zappos tuxedo shoes](https://shoes.allwomenstalk.com/hottest-white-shoes-its-okay-to-wear-now/)
-- [jimmy choo lace up boots](https://shoes.allwomenstalk.com/hottest-jimmy-choo-boots-on-sale-right-now/)
+- [fall designer shoes](https://shoes.allwomenstalk.com/these-are-the-must-have-shoe-styles-for-this-fall/)
+- [big feet beauty](https://shoes.allwomenstalk.com/beauties-with-big-feet-should-buy-these-stylish-shoes/)
+- [christmas high heels](https://shoes.allwomenstalk.com/hottest-heels-to-wear-to-christmas-and-new-year-parties/)
+- [little girl high heel shoes](https://shoes.allwomenstalk.com/high-heels-for-short-girls-who-dont-want-to-fall-down/)
 - [cinderella flat shoes](https://shoes.allwomenstalk.com/cinderella-shoes-for-girls-who-are-going-to-the-ball/)
+- [high heels to flats](https://shoes.allwomenstalk.com/perfect-first-pair-of-heels-to-buy-for-girls-who-always-wear-flats/)
+- [jimmy choo lace up boots](https://shoes.allwomenstalk.com/hottest-jimmy-choo-boots-on-sale-right-now/)
+- [shoes 101](https://shoes.allwomenstalk.com/what-does-your-shoe-style-say-about-you/)
 - [7 Pretty Espadrilles ...](https://shoes.allwomenstalk.com/7-pretty-espadrilles/)
 - [8 Gorgeous Wedge Sandals ...](https://shoes.allwomenstalk.com/gorgeous-wedge-sandals/)
 

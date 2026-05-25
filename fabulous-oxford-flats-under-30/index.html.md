@@ -68,16 +68,16 @@ These nine pairs of fun, flirty oxfords under $30 will help you update your ward
 
 ## Related Posts
 
-- [loved shoes](https://celebs.allwomenstalk.com/most-loved-shoes-by-celebrities/)
-- [very short heels](https://shoes.allwomenstalk.com/new-season-low-heeled-shoes/)
+- [famous women shoes](https://shoes.allwomenstalk.com/most-famous-shoe-designers/)
 - [song new shoes](https://shoes.allwomenstalk.com/songs-about-shoes/)
-- [new season shoes](https://shoes.allwomenstalk.com/new-season-nude-shoes/)
+- [very short heels](https://shoes.allwomenstalk.com/new-season-low-heeled-shoes/)
 - [toms disney shoes](https://shoes.allwomenstalk.com/darling-disney-toms/)
-- [date night sandals](https://shoes.allwomenstalk.com/stylish-date-night-flats/)
 - [silver sneaker wedges](https://shoes.allwomenstalk.com/adorable-sneaker-wedges/)
 - [stretch dr martens boots](https://shoes.allwomenstalk.com/safe-ways-to-stretch-too-small-shoes/)
+- [loved shoes](https://celebs.allwomenstalk.com/most-loved-shoes-by-celebrities/)
 - [blue platform mary janes](https://shoes.allwomenstalk.com/marvelous-mary-jane-shoes/)
-- [famous women shoes](https://shoes.allwomenstalk.com/most-famous-shoe-designers/)
+- [new season shoes](https://shoes.allwomenstalk.com/new-season-nude-shoes/)
+- [date night sandals](https://shoes.allwomenstalk.com/stylish-date-night-flats/)
 - [4 Fabulous Orange Michael Kors Flats ...](https://shoes.allwomenstalk.com/fabulous-orange-michael-kors-flats/)
 - [5 Fabulous Brown Loeffler Randall Flats ...](https://shoes.allwomenstalk.com/fabulous-brown-loeffler-randall-flats/)
 

@@ -144,16 +144,16 @@ Which pair is your favorite? What color are your toes painted?
 
 ## Related Posts
 
-- [fall designer shoes](https://shoes.allwomenstalk.com/these-are-the-must-have-shoe-styles-for-this-fall/)
-- [genius shoes](https://shoes.allwomenstalk.com/how-to-help-your-white-sneakers-stay-white/)
-- [best strappy sandals](https://shoes.allwomenstalk.com/strappy-summer-sandals-that-are-super-comfy/)
-- [big feet beauty](https://shoes.allwomenstalk.com/beauties-with-big-feet-should-buy-these-stylish-shoes/)
-- [shoes 101](https://shoes.allwomenstalk.com/what-does-your-shoe-style-say-about-you/)
+- [beau monde rehab](https://shoes.allwomenstalk.com/gorgeous-flats-for-girls-who-dont-like-heels/)
 - [little girl high heel shoes](https://shoes.allwomenstalk.com/high-heels-for-short-girls-who-dont-want-to-fall-down/)
 - [big feet women](https://shoes.allwomenstalk.com/this-summers-sexiest-sandals-ever-for-girls-with-big-feet/)
-- [how to wear strappy heels without pain](https://shoes.allwomenstalk.com/tips-for-wearing-sexy-heels-all-day-long-without-suffering/)
+- [fall designer shoes](https://shoes.allwomenstalk.com/these-are-the-must-have-shoe-styles-for-this-fall/)
 - [high heels to flats](https://shoes.allwomenstalk.com/perfect-first-pair-of-heels-to-buy-for-girls-who-always-wear-flats/)
-- [beau monde rehab](https://shoes.allwomenstalk.com/gorgeous-flats-for-girls-who-dont-like-heels/)
+- [genius shoes](https://shoes.allwomenstalk.com/how-to-help-your-white-sneakers-stay-white/)
+- [best strappy sandals](https://shoes.allwomenstalk.com/strappy-summer-sandals-that-are-super-comfy/)
+- [how to wear strappy heels without pain](https://shoes.allwomenstalk.com/tips-for-wearing-sexy-heels-all-day-long-without-suffering/)
+- [shoes 101](https://shoes.allwomenstalk.com/what-does-your-shoe-style-say-about-you/)
+- [big feet beauty](https://shoes.allwomenstalk.com/beauties-with-big-feet-should-buy-these-stylish-shoes/)
 - [8 Beautiful Beach Sandals ...](https://shoes.allwomenstalk.com/beautiful-beach-sandals/)
 - [10 Sexy High Heel Sandals ...](https://allwomenstalk.com/sexy-high-heel-sandals/)
 

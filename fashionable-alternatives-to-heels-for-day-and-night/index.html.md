@@ -68,16 +68,16 @@ I have to admit, although I love heels, I will always invest in a good pair of f
 
 ## Related Posts
 
-- [women heels types](https://shoes.allwomenstalk.com/different-heel-types-on-womens-shoes/)
 - [how to make high heels more comfortable](https://shoes.allwomenstalk.com/ways-to-make-high-heels-more-comfortable/)
+- [sky high shoes](https://shoes.allwomenstalk.com/pairs-of-sky-high-stilettos-that-will-go-with-anything-in-your-closet/)
+- [top 10 shoe brands](https://shoes.allwomenstalk.com/great-shoe-brands-for-women-with-narrow-feet/)
 - [colorful rainboots](https://shoes.allwomenstalk.com/colorful-rainboots-for-april-showers/)
+- [who makes exist shoes](https://shoes.allwomenstalk.com/ridiculous-shoes-that-shouldnt-exist/)
 - [shoe.shops](https://shoes.allwomenstalk.com/boutique-shoe-stores-in-london-you-can-visit/)
+- [women heels types](https://shoes.allwomenstalk.com/different-heel-types-on-womens-shoes/)
 - [quirky flat shoes](https://shoes.allwomenstalk.com/eclectic-shoes-to-wear-when-you-are-in-a-quirky-mood/)
 - [how many pairs of shoes should a man own](https://shoes.allwomenstalk.com/reasons-you-dont-need-so-many-shoes/)
 - [budget footwear](https://shoes.allwomenstalk.com/ways-to-buy-shoes-on-a-budget-and-look-like-youre-wearing-couture/)
-- [sky high shoes](https://shoes.allwomenstalk.com/pairs-of-sky-high-stilettos-that-will-go-with-anything-in-your-closet/)
-- [top 10 shoe brands](https://shoes.allwomenstalk.com/great-shoe-brands-for-women-with-narrow-feet/)
-- [who makes exist shoes](https://shoes.allwomenstalk.com/ridiculous-shoes-that-shouldnt-exist/)
 - [9 Designer Shoes That Are Hot This Season ...](https://shoes.allwomenstalk.com/designer-shoes-that-are-hot-this-season/)
 - [8 Stylish Low-Heel Shoes You Can Wear Every Day .....](https://shoes.allwomenstalk.com/stylish-low-heel-shoes-you-can-wear-every-day/)
 

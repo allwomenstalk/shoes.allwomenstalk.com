@@ -56,16 +56,16 @@ So as you can see, British shoe designers are getting a little kooky this year. 
 
 ## Related Posts
 
-- [timeless styles](https://fashion.allwomenstalk.com/timeless-fashion-trends-that-will-never-go-out-of-style/)
-- [2014 hair trends](https://beauty.allwomenstalk.com/hot-hair-and-beauty-trends-for-spring-to-look-forward-to/)
 - [padlock necklace trend](https://jewelry.allwomenstalk.com/spring-jewelry-trends-you-can-rock/)
-- [2014 style trends](https://fashion.allwomenstalk.com/fun-s-fashion-trends-that-are-back-for/)
+- [paris color riche stylo eye bottomless](https://makeup.allwomenstalk.com/spring-makeup-trends-that-every-woman-can-follow/)
 - [the workout digest](https://fitness.allwomenstalk.com/fitness-trends-for/)
 - [gama naif](https://makeup.allwomenstalk.com/big-makeup-trends-for-spring/)
-- [practical and fashionable](https://fashion.allwomenstalk.com/of-the-least-practical-fashion-trends-that-ever-existed/)
-- [new black colour](https://fashion.allwomenstalk.com/reasons-the-color-nude-is-the-new-black-this-year/)
+- [2014 style trends](https://fashion.allwomenstalk.com/fun-s-fashion-trends-that-are-back-for/)
 - [contrast in fashion](https://fashion.allwomenstalk.com/unexpected-fashion-week-trends-and-how-to-wear-them/)
-- [paris color riche stylo eye bottomless](https://makeup.allwomenstalk.com/spring-makeup-trends-that-every-woman-can-follow/)
+- [new black colour](https://fashion.allwomenstalk.com/reasons-the-color-nude-is-the-new-black-this-year/)
+- [practical and fashionable](https://fashion.allwomenstalk.com/of-the-least-practical-fashion-trends-that-ever-existed/)
+- [2014 hair trends](https://beauty.allwomenstalk.com/hot-hair-and-beauty-trends-for-spring-to-look-forward-to/)
+- [timeless styles](https://fashion.allwomenstalk.com/timeless-fashion-trends-that-will-never-go-out-of-style/)
 - [7 Stylish Sneakers ...](https://shoes.allwomenstalk.com/7-stylish-sneakers/)
 - [7 Classic Designer Shoes to Invest into ...](https://shoes.allwomenstalk.com/classic-designer-shoes-to-invest-into/)
 

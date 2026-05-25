@@ -74,16 +74,16 @@ Now that you know the 10 types of shoes you should have in your closet, think ab
 
 ## Related Posts
 
-- [winter trend shoes](https://shoes.allwomenstalk.com/shoe-trends-to-take-note-of-this-winter/)
-- [designer shoes that look like vans](https://shoes.allwomenstalk.com/fabulous-designer-shoe-collaborations/)
-- [board names on pinterest](https://shoes.allwomenstalk.com/best-pinterest-shoe-boards/)
-- [popular shoes for girls](https://shoes.allwomenstalk.com/best-workout-shoes-for-teenage-girls/)
 - [high heels tips](https://shoes.allwomenstalk.com/superb-tips-on-wearing-high-heels/)
-- [tall boots for fall](https://shoes.allwomenstalk.com/tantalizing-tall-fall-boots/)
-- [large size womens dress shoes](https://fashion.allwomenstalk.com/gorgeous-shoes-for-plus-size-ladies/)
-- [how to clean dolce and gabbana shoes](https://shoes.allwomenstalk.com/care-tips-for-high-end-designer-shoes/)
+- [popular shoes for girls](https://shoes.allwomenstalk.com/best-workout-shoes-for-teenage-girls/)
+- [board names on pinterest](https://shoes.allwomenstalk.com/best-pinterest-shoe-boards/)
+- [winter trend shoes](https://shoes.allwomenstalk.com/shoe-trends-to-take-note-of-this-winter/)
 - [shoes for new years eve](https://shoes.allwomenstalk.com/sparkling-new-years-eve-shoes/)
 - [shoes for college student](https://shoes.allwomenstalk.com/comfy-shoes-for-college-students/)
+- [large size womens dress shoes](https://fashion.allwomenstalk.com/gorgeous-shoes-for-plus-size-ladies/)
+- [designer shoes that look like vans](https://shoes.allwomenstalk.com/fabulous-designer-shoe-collaborations/)
+- [tall boots for fall](https://shoes.allwomenstalk.com/tantalizing-tall-fall-boots/)
+- [how to clean dolce and gabbana shoes](https://shoes.allwomenstalk.com/care-tips-for-high-end-designer-shoes/)
 - [7 Things to Consider when Choosing Shoes ...](https://shoes.allwomenstalk.com/7-things-to-consider-when-choosing-shoes/)
 - [9 Designer Shoes That Are Hot This Season ...](https://shoes.allwomenstalk.com/designer-shoes-that-are-hot-this-season/)
 

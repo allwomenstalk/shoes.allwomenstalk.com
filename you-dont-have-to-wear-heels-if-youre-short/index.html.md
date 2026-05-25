@@ -42,16 +42,16 @@ Do you trade your flats for heels from time to time? If you have traded your hee
 
 ## Related Posts
 
-- [genius shoes](https://shoes.allwomenstalk.com/how-to-help-your-white-sneakers-stay-white/)
-- [beau monde rehab](https://shoes.allwomenstalk.com/gorgeous-flats-for-girls-who-dont-like-heels/)
-- [how to wear strappy heels without pain](https://shoes.allwomenstalk.com/tips-for-wearing-sexy-heels-all-day-long-without-suffering/)
-- [shoes every woman should own](https://shoes.allwomenstalk.com/the-rules-of-shoes-every-woman-should-live-by/)
-- [little girl high heel shoes](https://shoes.allwomenstalk.com/high-heels-for-short-girls-who-dont-want-to-fall-down/)
-- [ankle tattoo women](https://beauty.allwomenstalk.com/adorable-foot-tattoos-that-are-easy-to-cover/)
 - [big feet beauty](https://shoes.allwomenstalk.com/beauties-with-big-feet-should-buy-these-stylish-shoes/)
-- [best strappy sandals](https://shoes.allwomenstalk.com/strappy-summer-sandals-that-are-super-comfy/)
+- [little girl high heel shoes](https://shoes.allwomenstalk.com/high-heels-for-short-girls-who-dont-want-to-fall-down/)
+- [shoes every woman should own](https://shoes.allwomenstalk.com/the-rules-of-shoes-every-woman-should-live-by/)
+- [how to wear strappy heels without pain](https://shoes.allwomenstalk.com/tips-for-wearing-sexy-heels-all-day-long-without-suffering/)
 - [shoes 101](https://shoes.allwomenstalk.com/what-does-your-shoe-style-say-about-you/)
 - [show your toes](https://shoes.allwomenstalk.com/show-off-your-toes-with-these-springtime-sandals/)
+- [ankle tattoo women](https://beauty.allwomenstalk.com/adorable-foot-tattoos-that-are-easy-to-cover/)
+- [genius shoes](https://shoes.allwomenstalk.com/how-to-help-your-white-sneakers-stay-white/)
+- [best strappy sandals](https://shoes.allwomenstalk.com/strappy-summer-sandals-that-are-super-comfy/)
+- [beau monde rehab](https://shoes.allwomenstalk.com/gorgeous-flats-for-girls-who-dont-like-heels/)
 - [18 Fab Fashion Tips Short Girls Need in Life ...](https://fashion.allwomenstalk.com/fabulous-fashion-tips-for-short-girls/)
 - [Its Time for You to Love Being Tall ...](https://beauty.allwomenstalk.com/reasons-to-love-being-tall/)
 

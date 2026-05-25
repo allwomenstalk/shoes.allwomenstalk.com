@@ -56,16 +56,16 @@ It's better to be safe than sorry, so you might as well stock up on as many heel
 
 ## Related Posts
 
+- [pictures of the most expensive shoes in the world](https://shoes.allwomenstalk.com/well-heeled-some-of-the-most-expensive-shoes-in-the-world/)
+- [cant walk in heels](https://shoes.allwomenstalk.com/cant-handle-heels-tips-to-make-walking-in-them-way-easier/)
+- [orange heels size 8](https://shoes.allwomenstalk.com/need-some-color-in-your-life-try-these-pairs-of-orange-heels/)
+- [green and purple heels](https://shoes.allwomenstalk.com/would-you-wear-purple-heels-choices-that-will-rock-your-world/)
+- [shoes every woman needs](https://shoes.allwomenstalk.com/stylish-shoes-every-woman-needs-for-spring/)
+- [do white sneakers go with everything](https://fashion.allwomenstalk.com/fashion-trend-clean-white-sneakers-and-how-you-can-wear-them-with-pretty-much-everything/)
+- [stripe heel](https://fashion.allwomenstalk.com/jazz-up-your-wardrobe-with-these-pairs-of-striped-high-heels/)
 - [oxfords with dresses](https://shoes.allwomenstalk.com/what-would-you-wear-these-magnificent-pairs-of-oxfords-with/)
 - [womens turquoise sandals](https://shoes.allwomenstalk.com/of-the-best-looking-turquoise-shoes-in-the-world/)
-- [cant walk in heels](https://shoes.allwomenstalk.com/cant-handle-heels-tips-to-make-walking-in-them-way-easier/)
-- [shoes every woman needs](https://shoes.allwomenstalk.com/stylish-shoes-every-woman-needs-for-spring/)
-- [green and purple heels](https://shoes.allwomenstalk.com/would-you-wear-purple-heels-choices-that-will-rock-your-world/)
-- [stripe heel](https://fashion.allwomenstalk.com/jazz-up-your-wardrobe-with-these-pairs-of-striped-high-heels/)
-- [do white sneakers go with everything](https://fashion.allwomenstalk.com/fashion-trend-clean-white-sneakers-and-how-you-can-wear-them-with-pretty-much-everything/)
-- [pictures of the most expensive shoes in the world](https://shoes.allwomenstalk.com/well-heeled-some-of-the-most-expensive-shoes-in-the-world/)
 - [prom shoes not heels](https://shoes.allwomenstalk.com/heels-to-wear-to-prom/)
-- [orange heels size 8](https://shoes.allwomenstalk.com/need-some-color-in-your-life-try-these-pairs-of-orange-heels/)
 - [7 Block Heel Shoes ...](https://shoes.allwomenstalk.com/7-block-heel-shoes/)
 - [8 Stylish Low-Heel Shoes You Can Wear Every Day .....](https://shoes.allwomenstalk.com/stylish-low-heel-shoes-you-can-wear-every-day/)
 

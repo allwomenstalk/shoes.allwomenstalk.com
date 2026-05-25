@@ -70,16 +70,16 @@ The only problem I have is that, when I find shoes that make me drool, I want to
 
 ## Related Posts
 
-- [loafers preppy](https://shoes.allwomenstalk.com/preppy-loafers/)
-- [lucky penny shoes](https://shoes.allwomenstalk.com/pretty-sandals-by-lucky-penny/)
-- [girly sneakers](https://shoes.allwomenstalk.com/sweet-girly-sneakers/)
 - [7 Glitter-Finish Shoes ...](https://shoes.allwomenstalk.com/7-glitter-finish-shoes/)
-- [8 Fab Studded Shoes ...](https://shoes.allwomenstalk.com/fab-studded-shoes/)
-- [loreal color riche le stylo eye glistening](https://shoes.allwomenstalk.com/7-new-wedges-i-love/)
-- [poetic justice shoes](https://shoes.allwomenstalk.com/7-cute-shoes-by-poetic-license/)
-- [studded shoes flats](https://shoes.allwomenstalk.com/studded-flat-shoes/)
-- [7 Shoes to Wear in Warm Weather ...](https://shoes.allwomenstalk.com/shoes-to-wear-in-warm-weather/)
+- [lucky penny shoes](https://shoes.allwomenstalk.com/pretty-sandals-by-lucky-penny/)
 - [8 Cute Shoes by Born ...](https://shoes.allwomenstalk.com/8-cute-shoes-by-born/)
+- [loafers preppy](https://shoes.allwomenstalk.com/preppy-loafers/)
+- [loreal color riche le stylo eye glistening](https://shoes.allwomenstalk.com/7-new-wedges-i-love/)
+- [8 Fab Studded Shoes ...](https://shoes.allwomenstalk.com/fab-studded-shoes/)
+- [poetic justice shoes](https://shoes.allwomenstalk.com/7-cute-shoes-by-poetic-license/)
+- [7 Shoes to Wear in Warm Weather ...](https://shoes.allwomenstalk.com/shoes-to-wear-in-warm-weather/)
+- [girly sneakers](https://shoes.allwomenstalk.com/sweet-girly-sneakers/)
+- [studded shoes flats](https://shoes.allwomenstalk.com/studded-flat-shoes/)
 - [8 Gorgeous Shoes by Seychelles ...](https://shoes.allwomenstalk.com/8-gorgeous-shoes-by-seychelles/)
 - [8 Hot High Heels That Make Me Think of Spring ...](https://shoes.allwomenstalk.com/8-hot-high-heels-that-make-me-think-of-spring/)
 

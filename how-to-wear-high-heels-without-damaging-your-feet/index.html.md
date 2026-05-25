@@ -42,16 +42,16 @@ You don't need to suffer to wear high heels, as long as you take some sensible p
 
 ## Related Posts
 
+- [open toe tall boots](https://shoes.allwomenstalk.com/which-of-these-ways-will-you-wear-peep-toe-booties-this-fall/)
 - [need those sneakers](https://shoes.allwomenstalk.com/you-need-these-sneakers-in-your-closet/)
 - [how to keep shoes from dry rotting](https://shoes.allwomenstalk.com/ways-to-keep-your-shoes-looking-like-new/)
-- [neon colored shoes](https://shoes.allwomenstalk.com/super-cool-pairs-of-neon-running-shoes-to-motivate-you/)
 - [heels hack](https://shoes.allwomenstalk.com/do-these-things-before-buying-a-pair-of-heels/)
-- [open toe tall boots](https://shoes.allwomenstalk.com/which-of-these-ways-will-you-wear-peep-toe-booties-this-fall/)
-- [luisa via roma loafers and moccasins](https://shoes.allwomenstalk.com/pairs-of-loafers-youll-love-to-walk-around-town-in/)
-- [kitten heels meaning](https://shoes.allwomenstalk.com/these-shoes-give-new-meaning-to-kitten-heels/)
 - [frye parker boots](https://shoes.allwomenstalk.com/must-have-lace-up-boots-for-fall/)
-- [peep toe boots for girls](https://shoes.allwomenstalk.com/hello-toes-check-out-these-peep-toe-booties-to-take-you-from-summer-to-fall/)
 - [outfit with ankle boots](https://shoes.allwomenstalk.com/these-celebs-offer-up-some-ways-to-wear-ankle-boots/)
+- [luisa via roma loafers and moccasins](https://shoes.allwomenstalk.com/pairs-of-loafers-youll-love-to-walk-around-town-in/)
+- [peep toe boots for girls](https://shoes.allwomenstalk.com/hello-toes-check-out-these-peep-toe-booties-to-take-you-from-summer-to-fall/)
+- [neon colored shoes](https://shoes.allwomenstalk.com/super-cool-pairs-of-neon-running-shoes-to-motivate-you/)
+- [kitten heels meaning](https://shoes.allwomenstalk.com/these-shoes-give-new-meaning-to-kitten-heels/)
 - [Discovering the Amazing Secret Benefits of Womens ...](https://allwomenstalk.com/discovering-the-amazing-secret-benefits-of-womens-shoes/)
 - [10 Staple Fashion Tips Every Woman Must Know ...](https://fashion.allwomenstalk.com/staple-fashion-tips-every-woman-must-know/)
 

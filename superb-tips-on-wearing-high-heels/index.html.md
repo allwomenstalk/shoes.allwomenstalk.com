@@ -42,16 +42,16 @@ I love how heels can add instant glamour and height, but I hate some of the side
 
 ## Related Posts
 
-- [fabulous flats](https://shoes.allwomenstalk.com/fabulous-flats-under-20/)
+- [barefoot shoes for sports](https://shoes.allwomenstalk.com/best-barefoot-shoes/)
+- [shoes for new years eve](https://shoes.allwomenstalk.com/sparkling-new-years-eve-shoes/)
+- [neon flats](https://shoes.allwomenstalk.com/funky-neon-flats/)
 - [cinderella shoes](https://shoes.allwomenstalk.com/cinderella-inspired-shoes/)
 - [black little mermaid shoes](https://shoes.allwomenstalk.com/little-mermaid-inspired-shoes/)
-- [neon flats](https://shoes.allwomenstalk.com/funky-neon-flats/)
-- [shoes with cat design](https://shoes.allwomenstalk.com/cool-cat-shoes/)
-- [sleeping beauty heels](https://shoes.allwomenstalk.com/sleeping-beauty-inspired-shoes/)
 - [best lbd](https://shoes.allwomenstalk.com/best-shoes-for-your-lbd/)
 - [bow booties](https://shoes.allwomenstalk.com/beautiful-bow-boots/)
-- [shoes for new years eve](https://shoes.allwomenstalk.com/sparkling-new-years-eve-shoes/)
-- [barefoot shoes for sports](https://shoes.allwomenstalk.com/best-barefoot-shoes/)
+- [sleeping beauty heels](https://shoes.allwomenstalk.com/sleeping-beauty-inspired-shoes/)
+- [fabulous flats](https://shoes.allwomenstalk.com/fabulous-flats-under-20/)
+- [shoes with cat design](https://shoes.allwomenstalk.com/cool-cat-shoes/)
 - [7 Steps to Walking in Killer Heels ...](https://shoes.allwomenstalk.com/7-steps-to-walking-in-killer-heels/)
 - [7 Wonderfully Clever Tips on How to Buy Shoes Onli...](https://shoes.allwomenstalk.com/wonderfully-clever-tips-on-how-to-buy-shoes-online/)
 

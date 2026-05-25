@@ -54,15 +54,15 @@ Top Image Source: [pinterest.com](https://www.pinterest.com/pin/3300300973941986
 
 ## Related Posts
 
-- [bodycon dress with tights and boots](https://shoes.allwomenstalk.com/beautiful-vegan-booties/)
-- [barefoot shoes for sports](https://shoes.allwomenstalk.com/best-barefoot-shoes/)
+- [valentines day shoe](https://shoes.allwomenstalk.com/sweet-shoes-for-valentines-day/)
 - [fabulous flats](https://shoes.allwomenstalk.com/fabulous-flats-under-20/)
 - [sleeping beauty heels](https://shoes.allwomenstalk.com/sleeping-beauty-inspired-shoes/)
+- [bodycon dress with tights and boots](https://shoes.allwomenstalk.com/beautiful-vegan-booties/)
+- [t strap designer shoes](https://shoes.allwomenstalk.com/stylish-t-strap-shoes/)
+- [bow booties](https://shoes.allwomenstalk.com/beautiful-bow-boots/)
 - [best lbd](https://shoes.allwomenstalk.com/best-shoes-for-your-lbd/)
 - [cinderella shoes](https://shoes.allwomenstalk.com/cinderella-inspired-shoes/)
-- [t strap designer shoes](https://shoes.allwomenstalk.com/stylish-t-strap-shoes/)
-- [valentines day shoe](https://shoes.allwomenstalk.com/sweet-shoes-for-valentines-day/)
-- [bow booties](https://shoes.allwomenstalk.com/beautiful-bow-boots/)
+- [barefoot shoes for sports](https://shoes.allwomenstalk.com/best-barefoot-shoes/)
 - [shoes with cat design](https://shoes.allwomenstalk.com/cool-cat-shoes/)
 - [7 Cute Shoes by Chinese Laundry ...](https://shoes.allwomenstalk.com/7-cute-shoes-by-chinese-laundry/)
 - [7 Cute Shoes by Poetic License ...](https://shoes.allwomenstalk.com/7-cute-shoes-by-poetic-license/)

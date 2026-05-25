@@ -240,16 +240,16 @@ Ready to buy yourself a pair of purple shoes now?
 
 ## Related Posts
 
-- [prom shoes not heels](https://shoes.allwomenstalk.com/heels-to-wear-to-prom/)
 - [bling flipflops](https://shoes.allwomenstalk.com/get-ready-for-some-bling-pairs-of-jeweled-flip-flops-to-wear-all-summer-long/)
-- [shoes to add height for amusement park](https://shoes.allwomenstalk.com/types-of-shoes-every-woman-needs-for-summer/)
-- [cant walk in heels](https://shoes.allwomenstalk.com/cant-handle-heels-tips-to-make-walking-in-them-way-easier/)
+- [prom shoes not heels](https://shoes.allwomenstalk.com/heels-to-wear-to-prom/)
 - [black summer sandal](https://shoes.allwomenstalk.com/pairs-of-black-summer-sandals-that-will-drop-your-jaw/)
-- [pictures of the most expensive shoes in the world](https://shoes.allwomenstalk.com/well-heeled-some-of-the-most-expensive-shoes-in-the-world/)
 - [do white sneakers go with everything](https://fashion.allwomenstalk.com/fashion-trend-clean-white-sneakers-and-how-you-can-wear-them-with-pretty-much-everything/)
-- [how to make sandals more comfortable](https://shoes.allwomenstalk.com/make-your-sandals-and-flip-flops-feel-comfy/)
+- [pictures of the most expensive shoes in the world](https://shoes.allwomenstalk.com/well-heeled-some-of-the-most-expensive-shoes-in-the-world/)
 - [gladiator sandals costume](https://shoes.allwomenstalk.com/ways-to-wear-gladiator-sandals-that-would-turn-russell-crowes-head/)
 - [orange heels size 8](https://shoes.allwomenstalk.com/need-some-color-in-your-life-try-these-pairs-of-orange-heels/)
+- [shoes to add height for amusement park](https://shoes.allwomenstalk.com/types-of-shoes-every-woman-needs-for-summer/)
+- [cant walk in heels](https://shoes.allwomenstalk.com/cant-handle-heels-tips-to-make-walking-in-them-way-easier/)
+- [how to make sandals more comfortable](https://shoes.allwomenstalk.com/make-your-sandals-and-flip-flops-feel-comfy/)
 - [11 Fabulous Purple Alexandre Birman High Heels ...](https://shoes.allwomenstalk.com/fabulous-purple-alexandre-birman-high-heels/)
 - [15 Fabulous Purple Brian Atwood High Heels ...](https://shoes.allwomenstalk.com/fabulous-purple-brian-atwood-high-heels/)
 

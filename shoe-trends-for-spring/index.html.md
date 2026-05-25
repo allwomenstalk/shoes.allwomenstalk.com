@@ -56,16 +56,16 @@ I can't wait for the beautiful weather and bright colors that come with the spri
 
 ## Related Posts
 
-- [paris riche stylo smoky endless](https://makeup.allwomenstalk.com/spring-makeup-trends/)
-- [site:fashion.allwomenstalk.com](https://fashion.allwomenstalk.com/eyeglass-trends-for/)
-- [trends from the 50s](https://fashion.allwomenstalk.com/gorgeous-trends-from-the-50s-we-should-revisit/)
-- [were combat boots popular in the 90s](https://fashion.allwomenstalk.com/90s-trends-that-need-to-make-a-comeback/)
-- [latest fashion blogs](https://fashion.allwomenstalk.com/trends-that-fashion-bloggers-love/)
-- [emitaz height](https://streetstyle.allwomenstalk.com/inspirational-street-style-ideas-for-spring/)
-- [hollywood trends](https://fashion.allwomenstalk.com/fashion-trends-inspired-by-hollywood-to-try-this-fall/)
 - [fall 2013 trends](https://beauty.allwomenstalk.com/fierce-fall-beauty-trends/)
+- [hollywood trends](https://fashion.allwomenstalk.com/fashion-trends-inspired-by-hollywood-to-try-this-fall/)
+- [site:fashion.allwomenstalk.com](https://fashion.allwomenstalk.com/eyeglass-trends-for/)
+- [were combat boots popular in the 90s](https://fashion.allwomenstalk.com/90s-trends-that-need-to-make-a-comeback/)
+- [emitaz height](https://streetstyle.allwomenstalk.com/inspirational-street-style-ideas-for-spring/)
+- [latest fashion blogs](https://fashion.allwomenstalk.com/trends-that-fashion-bloggers-love/)
 - [beauty trends that guys love](https://fashion.allwomenstalk.com/beauty-and-style-trends-that-guys-hate/)
 - [emitaz height](https://fashion.allwomenstalk.com/denim-trends-to-try-right-now/)
+- [paris riche stylo smoky endless](https://makeup.allwomenstalk.com/spring-makeup-trends/)
+- [trends from the 50s](https://fashion.allwomenstalk.com/gorgeous-trends-from-the-50s-we-should-revisit/)
 - [7 Stylish Spring Fashion Trends ...](https://fashion.allwomenstalk.com/stylish-spring-fashion-trends/)
 - [17 Top Spring-Summer Fashion Trends for 2012 ...](https://fashion.allwomenstalk.com/top-spring-summer-fashion-trends-for/)
 

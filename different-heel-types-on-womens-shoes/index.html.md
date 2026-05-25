@@ -56,14 +56,14 @@ I like to think that the diverse nature of heel types reflects our unique person
 
 ## Related Posts
 
-- [how to make high heels more comfortable](https://shoes.allwomenstalk.com/ways-to-make-high-heels-more-comfortable/)
 - [who makes exist shoes](https://shoes.allwomenstalk.com/ridiculous-shoes-that-shouldnt-exist/)
-- [how many pairs of shoes should a man own](https://shoes.allwomenstalk.com/reasons-you-dont-need-so-many-shoes/)
+- [how to repair leather shoe scuffs](https://shoes.allwomenstalk.com/ways-to-remove-scuff-marks-from-shoes/)
 - [espadrilles about you](https://shoes.allwomenstalk.com/perfectly-pretty-wedges-and-espadrilles-from-bluefly-com/)
 - [top 10 shoe brands](https://shoes.allwomenstalk.com/great-shoe-brands-for-women-with-narrow-feet/)
-- [colorful rainboots](https://shoes.allwomenstalk.com/colorful-rainboots-for-april-showers/)
-- [how to repair leather shoe scuffs](https://shoes.allwomenstalk.com/ways-to-remove-scuff-marks-from-shoes/)
 - [shoe.shops](https://shoes.allwomenstalk.com/boutique-shoe-stores-in-london-you-can-visit/)
+- [how many pairs of shoes should a man own](https://shoes.allwomenstalk.com/reasons-you-dont-need-so-many-shoes/)
+- [colorful rainboots](https://shoes.allwomenstalk.com/colorful-rainboots-for-april-showers/)
+- [how to make high heels more comfortable](https://shoes.allwomenstalk.com/ways-to-make-high-heels-more-comfortable/)
 - [sky high shoes](https://shoes.allwomenstalk.com/pairs-of-sky-high-stilettos-that-will-go-with-anything-in-your-closet/)
 - [floral pattern shoes for ladies](https://shoes.allwomenstalk.com/floral-shoes-for-pretty-feet-in-all-seasons/)
 - [7 Must Have Shoe Accessories ...](https://shoes.allwomenstalk.com/7-must-have-shoe-accessories/)

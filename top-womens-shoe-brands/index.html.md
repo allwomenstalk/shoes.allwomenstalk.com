@@ -56,16 +56,16 @@ As we've seen, each of these iconic brands brings something unique to the table.
 
 ## Related Posts
 
-- [bridal shoes anthropologie](https://wedding.allwomenstalk.com/4-unique-wedding-shoes-youll-dream-about/)
-- [ruffle heels](https://wedding.allwomenstalk.com/4-chic-heels-that-will-ruffle-your-wedding-feathers/)
-- [weeding boots](https://wedding.allwomenstalk.com/4-stylish-boots-for-your-wedding-day-shoe/)
 - [kate middleton bridal shoes](https://wedding.allwomenstalk.com/beautiful-bridal-shoes-for-kate-middleton/)
-- [wedding night cd](https://wedding.allwomenstalk.com/5-hot-pairs-of-shoes-to-spark-up-your-wedding-night/)
+- [prettiest wedding shoes](https://wedding.allwomenstalk.com/8-fab-shoes-to-get-married-in/)
 - [dior bridal heels](https://wedding.allwomenstalk.com/5-flirty-floral-bridal-shoes-for-spring/)
-- [what to wear with canvas sneakers](https://shoes.allwomenstalk.com/adorable-canvas-sneakers-to-pair-with-summer-dresses/)
+- [bridal shoes anthropologie](https://wedding.allwomenstalk.com/4-unique-wedding-shoes-youll-dream-about/)
 - [4 Wedding Shoes to Fit Your Mood ...](https://wedding.allwomenstalk.com/4-wedding-shoes-to-fit-your-mood/)
 - [pink flats for wedding](https://wedding.allwomenstalk.com/4-flirty-flats-to-rock-on-your-wedding-day/)
-- [prettiest wedding shoes](https://wedding.allwomenstalk.com/8-fab-shoes-to-get-married-in/)
+- [weeding boots](https://wedding.allwomenstalk.com/4-stylish-boots-for-your-wedding-day-shoe/)
+- [ruffle heels](https://wedding.allwomenstalk.com/4-chic-heels-that-will-ruffle-your-wedding-feathers/)
+- [wedding night cd](https://wedding.allwomenstalk.com/5-hot-pairs-of-shoes-to-spark-up-your-wedding-night/)
+- [what to wear with canvas sneakers](https://shoes.allwomenstalk.com/adorable-canvas-sneakers-to-pair-with-summer-dresses/)
 - [7 Stylish Sneakers ...](https://shoes.allwomenstalk.com/7-stylish-sneakers/)
 - [9 Designer Shoes That Are Hot This Season ...](https://shoes.allwomenstalk.com/designer-shoes-that-are-hot-this-season/)
 

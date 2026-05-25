@@ -56,16 +56,16 @@ With these 7 options to choose from, you’ll have the coolest feet on the stree
 
 ## Related Posts
 
-- [new season shoes](https://shoes.allwomenstalk.com/new-season-nude-shoes/)
-- [toms disney shoes](https://shoes.allwomenstalk.com/darling-disney-toms/)
-- [loved shoes](https://celebs.allwomenstalk.com/most-loved-shoes-by-celebrities/)
-- [cute oxford flats](https://shoes.allwomenstalk.com/fabulous-oxford-flats-under-30/)
 - [silver sneaker wedges](https://shoes.allwomenstalk.com/adorable-sneaker-wedges/)
-- [date night sandals](https://shoes.allwomenstalk.com/stylish-date-night-flats/)
 - [famous women shoes](https://shoes.allwomenstalk.com/most-famous-shoe-designers/)
 - [blue platform mary janes](https://shoes.allwomenstalk.com/marvelous-mary-jane-shoes/)
-- [very short heels](https://shoes.allwomenstalk.com/new-season-low-heeled-shoes/)
+- [loved shoes](https://celebs.allwomenstalk.com/most-loved-shoes-by-celebrities/)
+- [toms disney shoes](https://shoes.allwomenstalk.com/darling-disney-toms/)
+- [date night sandals](https://shoes.allwomenstalk.com/stylish-date-night-flats/)
+- [cute oxford flats](https://shoes.allwomenstalk.com/fabulous-oxford-flats-under-30/)
 - [stretch dr martens boots](https://shoes.allwomenstalk.com/safe-ways-to-stretch-too-small-shoes/)
+- [very short heels](https://shoes.allwomenstalk.com/new-season-low-heeled-shoes/)
+- [new season shoes](https://shoes.allwomenstalk.com/new-season-nude-shoes/)
 - [7 Buckle Boots ...](https://shoes.allwomenstalk.com/7-buckle-boots/)
 - [7 Stylish Wellington Boots ...](https://shoes.allwomenstalk.com/stylish-wellington-boots/)
 

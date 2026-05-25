@@ -163,15 +163,15 @@ Do you see a pair you love? Will they make it more fun to go for a run?
 
 ## Related Posts
 
-- [frye parker boots](https://shoes.allwomenstalk.com/must-have-lace-up-boots-for-fall/)
-- [how to soothe feet after wearing heels](https://shoes.allwomenstalk.com/how-to-soothe-your-feet-after-wearing-heels/)
-- [kitten heels meaning](https://shoes.allwomenstalk.com/these-shoes-give-new-meaning-to-kitten-heels/)
-- [how to break in leather boots](https://shoes.allwomenstalk.com/how-to-break-in-your-new-boots/)
-- [peep toe boots for girls](https://shoes.allwomenstalk.com/hello-toes-check-out-these-peep-toe-booties-to-take-you-from-summer-to-fall/)
-- [outfit with ankle boots](https://shoes.allwomenstalk.com/these-celebs-offer-up-some-ways-to-wear-ankle-boots/)
 - [how to keep shoes from dry rotting](https://shoes.allwomenstalk.com/ways-to-keep-your-shoes-looking-like-new/)
-- [heels hack](https://shoes.allwomenstalk.com/do-these-things-before-buying-a-pair-of-heels/)
+- [peep toe boots for girls](https://shoes.allwomenstalk.com/hello-toes-check-out-these-peep-toe-booties-to-take-you-from-summer-to-fall/)
+- [frye parker boots](https://shoes.allwomenstalk.com/must-have-lace-up-boots-for-fall/)
+- [how to break in leather boots](https://shoes.allwomenstalk.com/how-to-break-in-your-new-boots/)
+- [kitten heels meaning](https://shoes.allwomenstalk.com/these-shoes-give-new-meaning-to-kitten-heels/)
+- [outfit with ankle boots](https://shoes.allwomenstalk.com/these-celebs-offer-up-some-ways-to-wear-ankle-boots/)
+- [how to soothe feet after wearing heels](https://shoes.allwomenstalk.com/how-to-soothe-your-feet-after-wearing-heels/)
 - [open toe tall boots](https://shoes.allwomenstalk.com/which-of-these-ways-will-you-wear-peep-toe-booties-this-fall/)
+- [heels hack](https://shoes.allwomenstalk.com/do-these-things-before-buying-a-pair-of-heels/)
 - [luisa via roma loafers and moccasins](https://shoes.allwomenstalk.com/pairs-of-loafers-youll-love-to-walk-around-town-in/)
 - [7 Stylish Sneakers ...](https://shoes.allwomenstalk.com/7-stylish-sneakers/)
 - [9 Delightfully Gorgeous Multi-Colored Shoes to Bri...](https://shoes.allwomenstalk.com/delightfully-gorgeous-multi-colored-shoes-to-brighten-up-your-fall/)

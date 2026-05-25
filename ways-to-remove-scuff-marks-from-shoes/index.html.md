@@ -50,16 +50,16 @@ Have you tried any other ways to remove scuff marks from shoes that work?
 
 ## Related Posts
 
-- [darcy booties](https://shoes.allwomenstalk.com/fifteen-shades-of-beige-the-best-brown-boots-this-fall/)
-- [cowboy boots with angel wings](https://fashion.allwomenstalk.com/pairs-of-cowboy-boots-to-wake-up-your-country-side/)
-- [running shoes for pavement](https://fitness.allwomenstalk.com/fantastic-pairs-of-running-shoes-that-will-make-you-want-to-hit-the-pavement/)
-- [boots street style](https://streetstyle.allwomenstalk.com/street-style-outfits-with-boots-for-the-fall/)
-- [espadrilles about you](https://shoes.allwomenstalk.com/perfectly-pretty-wedges-and-espadrilles-from-bluefly-com/)
 - [new birkenstock trend](https://shoes.allwomenstalk.com/reasons-why-the-birkenstock-trend-is-awesome/)
-- [aldocom](https://fashion.allwomenstalk.com/affordable-accessories-from-aldo-com/)
 - [vegan chic shoes](https://shoes.allwomenstalk.com/vegan-footwear-brands-youll-love/)
+- [running shoes for pavement](https://fitness.allwomenstalk.com/fantastic-pairs-of-running-shoes-that-will-make-you-want-to-hit-the-pavement/)
+- [aldocom](https://fashion.allwomenstalk.com/affordable-accessories-from-aldo-com/)
+- [espadrilles about you](https://shoes.allwomenstalk.com/perfectly-pretty-wedges-and-espadrilles-from-bluefly-com/)
+- [cowboy boots with angel wings](https://fashion.allwomenstalk.com/pairs-of-cowboy-boots-to-wake-up-your-country-side/)
 - [floral pattern shoes for ladies](https://shoes.allwomenstalk.com/floral-shoes-for-pretty-feet-in-all-seasons/)
 - [what to wear with floral print shoes](https://shoes.allwomenstalk.com/floral-high-heels-to-wear-to-your-next-event/)
+- [boots street style](https://streetstyle.allwomenstalk.com/street-style-outfits-with-boots-for-the-fall/)
+- [darcy booties](https://shoes.allwomenstalk.com/fifteen-shades-of-beige-the-best-brown-boots-this-fall/)
 - [The Fashion Statement Your Shoes Make Today ...](https://allwomenstalk.com/fashion-statement-shoes-make-today/)
 - [Shoe Bling ...](https://allwomenstalk.com/shoe-bling/)
 

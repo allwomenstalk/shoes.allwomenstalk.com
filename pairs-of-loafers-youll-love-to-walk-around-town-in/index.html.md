@@ -176,16 +176,16 @@ Which pair are you dying to have?
 
 ## Related Posts
 
-- [show your toes](https://shoes.allwomenstalk.com/show-off-your-toes-with-these-springtime-sandals/)
-- [boots made for walking gif](https://shoes.allwomenstalk.com/dont-make-these-mistakes-with-your-winter-boots/)
 - [boots for short dresses](https://fashion.allwomenstalk.com/how-short-girls-can-get-away-with-wearing-knee-high-boots/)
 - [ankle tattoo women](https://beauty.allwomenstalk.com/adorable-foot-tattoos-that-are-easy-to-cover/)
+- [show your toes](https://shoes.allwomenstalk.com/show-off-your-toes-with-these-springtime-sandals/)
+- [i dont wear heels](https://shoes.allwomenstalk.com/you-dont-have-to-wear-heels-if-youre-short/)
 - [how to break in leather boots](https://shoes.allwomenstalk.com/how-to-break-in-your-new-boots/)
 - [shoes every woman should own](https://shoes.allwomenstalk.com/the-rules-of-shoes-every-woman-should-live-by/)
-- [how to soothe feet after wearing heels](https://shoes.allwomenstalk.com/how-to-soothe-your-feet-after-wearing-heels/)
-- [i dont wear heels](https://shoes.allwomenstalk.com/you-dont-have-to-wear-heels-if-youre-short/)
-- [glitzy shoes](https://shoes.allwomenstalk.com/glitzy-shoes-dorothy-would-be-envious-of/)
 - [how to keep shoes from dry rotting](https://shoes.allwomenstalk.com/ways-to-keep-your-shoes-looking-like-new/)
+- [boots made for walking gif](https://shoes.allwomenstalk.com/dont-make-these-mistakes-with-your-winter-boots/)
+- [glitzy shoes](https://shoes.allwomenstalk.com/glitzy-shoes-dorothy-would-be-envious-of/)
+- [how to soothe feet after wearing heels](https://shoes.allwomenstalk.com/how-to-soothe-your-feet-after-wearing-heels/)
 - [7 Stylish Sneakers ...](https://shoes.allwomenstalk.com/7-stylish-sneakers/)
 - [7 Preppy Loafers ...](https://shoes.allwomenstalk.com/preppy-loafers/)
 

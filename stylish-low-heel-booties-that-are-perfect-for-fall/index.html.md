@@ -56,16 +56,16 @@ All of these booties are fabulous and have such flare! Which bootie was your fav
 
 ## Related Posts
 
-- [d orsay sandals](https://shoes.allwomenstalk.com/best-dorsay-flats/)
+- [different types of shoes for ladies](https://shoes.allwomenstalk.com/essential-types-of-shoes-all-women-should-have/)
+- [new years eve heels](https://shoes.allwomenstalk.com/cute-flats-for-new-years-eve-and-beyond/)
+- [can you wear ankle boots in the summer](https://shoes.allwomenstalk.com/ways-to-make-ankle-boots-work-for-you/)
+- [health benefits of leather shoes](https://shoes.allwomenstalk.com/benefits-of-natural-leather-to-consider-when-buying-footwear/)
 - [brown womens ankle boots](https://shoes.allwomenstalk.com/best-brown-ankle-boots/)
 - [leather smoking shoes](https://shoes.allwomenstalk.com/the-best-smoking-slippers/)
-- [so paulina boots](https://shoes.allwomenstalk.com/the-best-black-riding-boots/)
-- [different types of shoes for ladies](https://shoes.allwomenstalk.com/essential-types-of-shoes-all-women-should-have/)
-- [health benefits of leather shoes](https://shoes.allwomenstalk.com/benefits-of-natural-leather-to-consider-when-buying-footwear/)
-- [can you wear ankle boots in the summer](https://shoes.allwomenstalk.com/ways-to-make-ankle-boots-work-for-you/)
-- [jeffrey campbell everly boot gold](https://shoes.allwomenstalk.com/best-black-ankle-boots-for-fall/)
-- [new years eve heels](https://shoes.allwomenstalk.com/cute-flats-for-new-years-eve-and-beyond/)
 - [stylish runners](https://shoes.allwomenstalk.com/best-stylish-running-sneakers/)
+- [so paulina boots](https://shoes.allwomenstalk.com/the-best-black-riding-boots/)
+- [d orsay sandals](https://shoes.allwomenstalk.com/best-dorsay-flats/)
+- [jeffrey campbell everly boot gold](https://shoes.allwomenstalk.com/best-black-ankle-boots-for-fall/)
 - [7 Stylish Beige Pierre Hardy Boots and Booties ...](https://shoes.allwomenstalk.com/stylish-beige-pierre-hardy-boots-and-booties/)
 - [8 Stylish Low-Heel Shoes You Can Wear Every Day .....](https://shoes.allwomenstalk.com/stylish-low-heel-shoes-you-can-wear-every-day/)
 

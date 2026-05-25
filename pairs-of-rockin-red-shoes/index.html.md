@@ -79,16 +79,16 @@ Top Image Source: [weheartit.com](https://weheartit.com/entry/20383245)
 
 ## Related Posts
 
-- [how to buy shoes](https://shoes.allwomenstalk.com/wonderfully-clever-tips-on-how-to-buy-shoes-online/)
-- [beach sandals](https://shoes.allwomenstalk.com/beautiful-beach-sandals/)
-- [8 Tips to Buying Your Perfect Boots ...](https://shoes.allwomenstalk.com/8-tips-to-buying-your-perfect-boots/)
-- [6 Hot Metallic versus Platform Shoes ...](https://shoes.allwomenstalk.com/hot-metallic-versus-platform-shoes/)
 - [colour blocking shoes](https://shoes.allwomenstalk.com/colour-block-shoes/)
-- [8 High-Shine Metallic Shoes to Glam up That Dress ...](https://shoes.allwomenstalk.com/high-shine-metallic-shoes-to-glam-up-that-dress/)
-- [sonoma lavender loafers](https://shoes.allwomenstalk.com/stylish-house-slippers/)
+- [6 Hot Metallic versus Platform Shoes ...](https://shoes.allwomenstalk.com/hot-metallic-versus-platform-shoes/)
+- [beach sandals](https://shoes.allwomenstalk.com/beautiful-beach-sandals/)
 - [8 Fashion Sneakers for Every Day ...](https://shoes.allwomenstalk.com/fashion-sneakers-for-every-day/)
-- [7 Stylish Patent Boots ...](https://shoes.allwomenstalk.com/stylish-patent-boots/)
+- [8 Tips to Buying Your Perfect Boots ...](https://shoes.allwomenstalk.com/8-tips-to-buying-your-perfect-boots/)
+- [how to buy shoes](https://shoes.allwomenstalk.com/wonderfully-clever-tips-on-how-to-buy-shoes-online/)
+- [sonoma lavender loafers](https://shoes.allwomenstalk.com/stylish-house-slippers/)
+- [8 High-Shine Metallic Shoes to Glam up That Dress ...](https://shoes.allwomenstalk.com/high-shine-metallic-shoes-to-glam-up-that-dress/)
 - [lacoste bateau](https://shoes.allwomenstalk.com/new-deck-shoes/)
+- [7 Stylish Patent Boots ...](https://shoes.allwomenstalk.com/stylish-patent-boots/)
 - [7 Terrific Two-Tone Shoes ...](https://shoes.allwomenstalk.com/7-terrific-two-tone-shoes/)
 - [9 Jaw-Dropping Louboutin Shoes ...](https://shoes.allwomenstalk.com/jaw-dropping-louboutin-shoes/)
 

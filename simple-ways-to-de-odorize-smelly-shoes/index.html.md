@@ -64,16 +64,16 @@ Do you have smelly shoes? Don’t be embarrassed! We won’t tell anyone!
 
 ## Related Posts
 
-- [laundress all purpose bleach alternative](https://lifestyle.allwomenstalk.com/laundry-hacks-thatll-help-keep-your-clothes-clean/)
-- [locking storage for dorm room](https://diy.allwomenstalk.com/super-dorm-room-space-savers-and-organizing-tricks/)
-- [make up stash](https://makeup.allwomenstalk.com/how-to-spring-clean-your-make-up-stash/)
 - [how to treat tarnished gold](https://jewelry.allwomenstalk.com/hacks-to-clean-your-jewelry/)
-- [how to get motivated to clean your house](https://lifestyle.allwomenstalk.com/ways-to-motivate-yourself-to-clean/)
-- [should i wash towels on heavy duty](https://lifestyle.allwomenstalk.com/how-to-get-your-towels-completely-clean/)
 - [can you keep makeup in the bathroom](https://makeup.allwomenstalk.com/makeup-organization-tips-to-keep-your-bathroom-clean/)
-- [forget the risk and take the fall](https://lifestyle.allwomenstalk.com/forget-spring-cleaning-things-that-should-be-cleaned-in-the-fall/)
 - [how to clean the phone screen](https://lifestyle.allwomenstalk.com/how-to-keep-your-phone-screen-clean/)
 - [mom life hacks](https://parenting.allwomenstalk.com/how-to-make-your-mothers-life-easier/)
+- [should i wash towels on heavy duty](https://lifestyle.allwomenstalk.com/how-to-get-your-towels-completely-clean/)
+- [how to get motivated to clean your house](https://lifestyle.allwomenstalk.com/ways-to-motivate-yourself-to-clean/)
+- [make up stash](https://makeup.allwomenstalk.com/how-to-spring-clean-your-make-up-stash/)
+- [laundress all purpose bleach alternative](https://lifestyle.allwomenstalk.com/laundry-hacks-thatll-help-keep-your-clothes-clean/)
+- [locking storage for dorm room](https://diy.allwomenstalk.com/super-dorm-room-space-savers-and-organizing-tricks/)
+- [forget the risk and take the fall](https://lifestyle.allwomenstalk.com/forget-spring-cleaning-things-that-should-be-cleaned-in-the-fall/)
 - [7 Steps to Clean and Fresh Workout Shoes ...](https://allwomenstalk.com/7-steps-to-clean-and-fresh-workout-shoes/)
 - [8 Ways to Remove Smell from Clothes ... ...](https://allwomenstalk.com/8-ways-to-remove-smell-from-clothes/)
 

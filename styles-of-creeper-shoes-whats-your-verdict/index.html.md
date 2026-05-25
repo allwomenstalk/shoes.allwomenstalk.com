@@ -65,16 +65,16 @@ Top Image Source: [weheartit.com](https://weheartit.com/entry/19138257)
 
 ## Related Posts
 
-- [betsey johnson brigs ballet flat](https://shoes.allwomenstalk.com/pairs-of-rockin-red-shoes/)
-- [beach sandals](https://shoes.allwomenstalk.com/beautiful-beach-sandals/)
-- [lacoste bateau](https://shoes.allwomenstalk.com/new-deck-shoes/)
-- [colour blocking shoes](https://shoes.allwomenstalk.com/colour-block-shoes/)
 - [sonoma lavender loafers](https://shoes.allwomenstalk.com/stylish-house-slippers/)
-- [7 Stylish Patent Boots ...](https://shoes.allwomenstalk.com/stylish-patent-boots/)
+- [colour blocking shoes](https://shoes.allwomenstalk.com/colour-block-shoes/)
+- [betsey johnson brigs ballet flat](https://shoes.allwomenstalk.com/pairs-of-rockin-red-shoes/)
 - [8 Tips to Buying Your Perfect Boots ...](https://shoes.allwomenstalk.com/8-tips-to-buying-your-perfect-boots/)
-- [how to buy shoes](https://shoes.allwomenstalk.com/wonderfully-clever-tips-on-how-to-buy-shoes-online/)
-- [8 High-Shine Metallic Shoes to Glam up That Dress ...](https://shoes.allwomenstalk.com/high-shine-metallic-shoes-to-glam-up-that-dress/)
 - [6 Hot Metallic versus Platform Shoes ...](https://shoes.allwomenstalk.com/hot-metallic-versus-platform-shoes/)
+- [beach sandals](https://shoes.allwomenstalk.com/beautiful-beach-sandals/)
+- [how to buy shoes](https://shoes.allwomenstalk.com/wonderfully-clever-tips-on-how-to-buy-shoes-online/)
+- [7 Stylish Patent Boots ...](https://shoes.allwomenstalk.com/stylish-patent-boots/)
+- [8 High-Shine Metallic Shoes to Glam up That Dress ...](https://shoes.allwomenstalk.com/high-shine-metallic-shoes-to-glam-up-that-dress/)
+- [lacoste bateau](https://shoes.allwomenstalk.com/new-deck-shoes/)
 - [7 Steps to Walking in Killer Heels ...](https://shoes.allwomenstalk.com/7-steps-to-walking-in-killer-heels/)
 - [7 Tips on How to Wear Wedge Boots ...](https://shoes.allwomenstalk.com/tips-on-how-to-wear-wedge-boots/)
 

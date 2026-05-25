@@ -38,16 +38,16 @@ What other exercises have you done to relieve pain after taking off your heels?
 
 ## Related Posts
 
-- [boots made for walking gif](https://shoes.allwomenstalk.com/dont-make-these-mistakes-with-your-winter-boots/)
-- [ankle tattoo women](https://beauty.allwomenstalk.com/adorable-foot-tattoos-that-are-easy-to-cover/)
-- [boots for short dresses](https://fashion.allwomenstalk.com/how-short-girls-can-get-away-with-wearing-knee-high-boots/)
-- [genius shoes](https://shoes.allwomenstalk.com/how-to-help-your-white-sneakers-stay-white/)
-- [beau monde rehab](https://shoes.allwomenstalk.com/gorgeous-flats-for-girls-who-dont-like-heels/)
-- [shoes every woman should own](https://shoes.allwomenstalk.com/the-rules-of-shoes-every-woman-should-live-by/)
 - [i dont wear heels](https://shoes.allwomenstalk.com/you-dont-have-to-wear-heels-if-youre-short/)
 - [how to wear strappy heels without pain](https://shoes.allwomenstalk.com/tips-for-wearing-sexy-heels-all-day-long-without-suffering/)
+- [boots for short dresses](https://fashion.allwomenstalk.com/how-short-girls-can-get-away-with-wearing-knee-high-boots/)
+- [ankle tattoo women](https://beauty.allwomenstalk.com/adorable-foot-tattoos-that-are-easy-to-cover/)
+- [genius shoes](https://shoes.allwomenstalk.com/how-to-help-your-white-sneakers-stay-white/)
+- [boots made for walking gif](https://shoes.allwomenstalk.com/dont-make-these-mistakes-with-your-winter-boots/)
 - [show your toes](https://shoes.allwomenstalk.com/show-off-your-toes-with-these-springtime-sandals/)
 - [glitzy shoes](https://shoes.allwomenstalk.com/glitzy-shoes-dorothy-would-be-envious-of/)
+- [shoes every woman should own](https://shoes.allwomenstalk.com/the-rules-of-shoes-every-woman-should-live-by/)
+- [beau monde rehab](https://shoes.allwomenstalk.com/gorgeous-flats-for-girls-who-dont-like-heels/)
 - [Foot Care ...](https://allwomenstalk.com/foot-care/)
 - [Feet Care Tips ...](https://allwomenstalk.com/feet-care-tips/)
 
