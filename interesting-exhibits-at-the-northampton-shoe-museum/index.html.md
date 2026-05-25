@@ -3,7 +3,7 @@ title: "7 Interesting Exhibits at the Northampton Shoe Museum ..."
 description: "Queen Victoria’s Wedding Shoes; Lady Mary Stanhope’s Shoes; Chinese Bound Feet Shoes; Turkish Bath Shoes; Claw Foot Shoe; More ..."
 url: "https://shoes.allwomenstalk.com/interesting-exhibits-at-the-northampton-shoe-museum/"
 category: "shoes"
-last_updated: "2026-05-22"
+last_updated: "2026-05-25"
 ---
 
 # 7 Interesting Exhibits at the Northampton Shoe Museum ...
@@ -20,7 +20,7 @@ One of the most viewed exhibits at Northampton Shoe Museum is the shoes worn by 
 
 ![Lady Mary Stanhope’s Shoes](https://resize.allw.mn/1028x0/filters:format(webp)/filters:quality(70)/content/tw/tg/n4ffsbme_600x476.jpg)
 
-Today’s [shoe designers](https://shoes.allwomenstalk.com/most-famous-shoe-designers/) produce some magical and fantastic creations, but they also know a bit about shoe design back in the 17th century. If there ever was a heyday for shoes in history it had to be this period. Heels had really started to gain in popularity but heavily adorned and intricately patterned shoes were all the rage. These blue velvet latchet tied shoes were reputedly worn by Lady Mary Stanhope in 1660.
+Today’s shoe designers produce some magical and fantastic creations, but they also know a bit about shoe design back in the 17th century. If there ever was a heyday for shoes in history it had to be this period. Heels had really started to gain in popularity but heavily adorned and intricately patterned shoes were all the rage. These blue velvet latchet tied shoes were reputedly worn by Lady Mary Stanhope in 1660.
 
 ## 3. Chinese Bound Feet Shoes
 
@@ -56,16 +56,16 @@ I know it’s off the beaten track tourist wise, but if you do ever come this wa
 
 ## Related Posts
 
-- [book bench](https://books.allwomenstalk.com/brilliant-examples-of-the-london-book-benches/)
-- [coromandel peninsula things to do](https://travel.allwomenstalk.com/places-of-beauty-and-attractions-of-the-coromandel-peninsula-nz/)
-- [neighborhoods now](https://travel.allwomenstalk.com/made-over-neighborhoods-now-worth-visiting/)
-- [things to do in baku azerbaijan](https://travel.allwomenstalk.com/things-to-do-in-baku-azerbaijan/)
-- [seeing the world from a different angle](https://travel.allwomenstalk.com/ways-to-see-the-world-from-a-different-angle/)
-- [lonely planet saudi arabia](https://travel.allwomenstalk.com/special-places-to-visit-in-saudi-arabia/)
-- [places to visit in harmony](https://travel.allwomenstalk.com/places-where-nature-and-spirituality-meet-in-harmony/)
-- [bizarre the coffee bar](https://travel.allwomenstalk.com/bizarre-bars-around-the-world-you-need-to-visit/)
 - [model billage](https://travel.allwomenstalk.com/model-villages-in-the-uk-for-a-fun-day-out/)
+- [coromandel peninsula things to do](https://travel.allwomenstalk.com/places-of-beauty-and-attractions-of-the-coromandel-peninsula-nz/)
+- [places to visit in harmony](https://travel.allwomenstalk.com/places-where-nature-and-spirituality-meet-in-harmony/)
+- [book bench](https://books.allwomenstalk.com/brilliant-examples-of-the-london-book-benches/)
+- [seeing the world from a different angle](https://travel.allwomenstalk.com/ways-to-see-the-world-from-a-different-angle/)
+- [bizarre the coffee bar](https://travel.allwomenstalk.com/bizarre-bars-around-the-world-you-need-to-visit/)
 - [carlsbad flower market](https://travel.allwomenstalk.com/best-blooming-flower-markets-around-the-world/)
+- [things to do in baku azerbaijan](https://travel.allwomenstalk.com/things-to-do-in-baku-azerbaijan/)
+- [lonely planet saudi arabia](https://travel.allwomenstalk.com/special-places-to-visit-in-saudi-arabia/)
+- [neighborhoods now](https://travel.allwomenstalk.com/made-over-neighborhoods-now-worth-visiting/)
 - [10 Things to See in Boston ...](https://travel.allwomenstalk.com/things-to-see-in-boston/)
 - [7 Outstanding Museums ...](https://allwomenstalk.com/7-outstanding-museums/)
 

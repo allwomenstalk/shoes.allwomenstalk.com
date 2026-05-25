@@ -3,7 +3,7 @@ title: "7 Sweet Shoes for Valentines Day ..."
 description: "Play Comme Des Garcons Converse Sneakers; Lanvin Heart Print Pump; Heart Print Canvas Ballet Flat; Love Moschino Heart Biker Boots; Adidas Honey Gold Heart Mid Sneakers; More ..."
 url: "https://shoes.allwomenstalk.com/sweet-shoes-for-valentines-day/"
 category: "shoes"
-last_updated: "2026-05-22"
+last_updated: "2026-05-25"
 ---
 
 # 7 Sweet Shoes for Valentines Day ...
@@ -44,7 +44,7 @@ Class/work/errand-running on Valentine’s Day? Don’t let your workload get yo
 
 ![Betseyville Heart Flats](https://resize.allw.mn/1028x0/filters:format(webp)/filters:quality(70)/content/shoes/2013/01/6_betseyville-heart-flats_380x296.jpg)
 
-**Calling all Valentine’s Day fanatics:** These heart-embellished flats prove that [love is in the air](https://allwomenstalk.com/10-signs-that-love-is-in-the-air/)…or at least on your toes! I adore the notice-me pink hue, which will liven up any neutral outfit. Pair them with a pleated leather skirt, black tights, and a white button down for a day at your internship. Who knows? You might catch a cutie’s eye as you’re fielding phone calls! Buy them now on Wanelo for $24.
+**Calling all Valentine’s Day fanatics:** These heart-embellished flats prove that love is in the air…or at least on your toes! I adore the notice-me pink hue, which will liven up any neutral outfit. Pair them with a pleated leather skirt, black tights, and a white button down for a day at your internship. Who knows? You might catch a cutie’s eye as you’re fielding phone calls! Buy them now on Wanelo for $24.
 
 ## 7. Heart Takes Flight Wedge
 
@@ -56,16 +56,16 @@ These Valentine’s Day heart shoes are flirty, fresh, and oh-so-fabulous. Which
 
 ## Related Posts
 
-- [bodycon dress with tights and boots](https://shoes.allwomenstalk.com/beautiful-vegan-booties/)
-- [blue platform mary janes](https://shoes.allwomenstalk.com/marvelous-mary-jane-shoes/)
-- [cute oxford flats](https://shoes.allwomenstalk.com/fabulous-oxford-flats-under-30/)
-- [loved shoes](https://celebs.allwomenstalk.com/most-loved-shoes-by-celebrities/)
 - [toms disney shoes](https://shoes.allwomenstalk.com/darling-disney-toms/)
+- [new season shoes](https://shoes.allwomenstalk.com/new-season-nude-shoes/)
+- [loved shoes](https://celebs.allwomenstalk.com/most-loved-shoes-by-celebrities/)
 - [very short heels](https://shoes.allwomenstalk.com/new-season-low-heeled-shoes/)
 - [silver sneaker wedges](https://shoes.allwomenstalk.com/adorable-sneaker-wedges/)
-- [famous women shoes](https://shoes.allwomenstalk.com/most-famous-shoe-designers/)
-- [new season shoes](https://shoes.allwomenstalk.com/new-season-nude-shoes/)
+- [blue platform mary janes](https://shoes.allwomenstalk.com/marvelous-mary-jane-shoes/)
+- [bodycon dress with tights and boots](https://shoes.allwomenstalk.com/beautiful-vegan-booties/)
+- [cute oxford flats](https://shoes.allwomenstalk.com/fabulous-oxford-flats-under-30/)
 - [date night sandals](https://shoes.allwomenstalk.com/stylish-date-night-flats/)
+- [famous women shoes](https://shoes.allwomenstalk.com/most-famous-shoe-designers/)
 - [7 Stylish Sneakers ...](https://shoes.allwomenstalk.com/7-stylish-sneakers/)
 - [7 Wonderful Wood-Soled Shoes ...](https://shoes.allwomenstalk.com/wonderful-wood-soled-shoes/)
 

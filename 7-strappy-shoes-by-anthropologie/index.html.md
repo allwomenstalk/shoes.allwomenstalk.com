@@ -3,7 +3,7 @@ title: "7 Strappy Shoes by Anthropologie ..."
 description: "Plaited Cayenne Sandals; Via Cardorna Wedges; Tancarville Heels; Bands & Buckles Flats; Wet Cement Sling-backs; More ..."
 url: "https://shoes.allwomenstalk.com/7-strappy-shoes-by-anthropologie/"
 category: "shoes"
-last_updated: "2026-05-22"
+last_updated: "2026-05-25"
 ---
 
 # 7 Strappy Shoes by Anthropologie ...
@@ -63,16 +63,16 @@ With so many strappy shoes, and so many ways to wear them, it’s no wonder they
 
 ## Related Posts
 
-- [4 Stylish Blue Pierre Hardy Wedges ...](https://shoes.allwomenstalk.com/stylish-blue-pierre-hardy-wedges/)
-- [6 Gorgeous Brown Donna Karan Boots and Booties ...](https://shoes.allwomenstalk.com/gorgeous-brown-donna-karan-boots-and-booties/)
+- [paris le stylo always pearly pink](https://shoes.allwomenstalk.com/chic-camel-pierre-hardy-wedges/)
 - [orange christian dior sandals](https://shoes.allwomenstalk.com/fabulous-orange-christian-dior-sandals/)
+- [10 Beautiful Black Diego Dolcini Evening Shoes ...](https://shoes.allwomenstalk.com/beautiful-black-diego-dolcini-evening-shoes/)
+- [8 Glamorous White Donna Karan High Heels ...](https://shoes.allwomenstalk.com/glamorous-white-donna-karan-high-heels/)
+- [6 Gorgeous Brown Donna Karan Boots and Booties ...](https://shoes.allwomenstalk.com/gorgeous-brown-donna-karan-boots-and-booties/)
+- [4 Stylish Blue Pierre Hardy Wedges ...](https://shoes.allwomenstalk.com/stylish-blue-pierre-hardy-wedges/)
+- [4 Hot Brown Jimmy Choo Sandals ...](https://shoes.allwomenstalk.com/hot-brown-jimmy-choo-sandals/)
 - [4 Gorgeous Orange Michael Kors Sandals ...](https://shoes.allwomenstalk.com/gorgeous-orange-michael-kors-sandals/)
 - [tila march](https://shoes.allwomenstalk.com/chic-gray-tila-march-sandals/)
-- [8 Glamorous White Donna Karan High Heels ...](https://shoes.allwomenstalk.com/glamorous-white-donna-karan-high-heels/)
-- [paris le stylo always pearly pink](https://shoes.allwomenstalk.com/chic-camel-pierre-hardy-wedges/)
 - [6 Stylish Metallic DKNY Sandals ...](https://shoes.allwomenstalk.com/stylish-metallic-dkny-sandals/)
-- [10 Beautiful Black Diego Dolcini Evening Shoes ...](https://shoes.allwomenstalk.com/beautiful-black-diego-dolcini-evening-shoes/)
-- [4 Hot Brown Jimmy Choo Sandals ...](https://shoes.allwomenstalk.com/hot-brown-jimmy-choo-sandals/)
 - [7 Cute Shoes by Poetic License ...](https://shoes.allwomenstalk.com/7-cute-shoes-by-poetic-license/)
 - [7 Pretty Espadrilles ...](https://shoes.allwomenstalk.com/7-pretty-espadrilles/)
 

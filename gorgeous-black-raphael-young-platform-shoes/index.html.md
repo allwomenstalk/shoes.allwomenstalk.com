@@ -3,7 +3,7 @@ title: "12 Gorgeous Black Raphael Young Platform Shoes ..."
 description: "#1; #2; #3; #4; #5; More ..."
 url: "https://shoes.allwomenstalk.com/gorgeous-black-raphael-young-platform-shoes/"
 category: "shoes"
-last_updated: "2026-05-22"
+last_updated: "2026-05-25"
 ---
 
 # 12 Gorgeous Black Raphael Young Platform Shoes ...
@@ -58,16 +58,16 @@ last_updated: "2026-05-22"
 
 ## Related Posts
 
-- [4 Gorgeous Brown Cole Haan Platform Shoes ...](https://shoes.allwomenstalk.com/gorgeous-brown-cole-haan-platform-shoes/)
-- [8 Glamorous Beige Sergio Rossi Sandals ...](https://shoes.allwomenstalk.com/glamorous-beige-sergio-rossi-sandals/)
-- [4 Glamorous Red Christian Dior Platform Shoes ...](https://shoes.allwomenstalk.com/glamorous-red-christian-dior-platform-shoes/)
-- [6 Fabulous Black Arfango Boots and Booties ...](https://shoes.allwomenstalk.com/fabulous-black-arfango-boots-and-booties/)
-- [8 Fabulous Black Oscar De La Renta Pump Shoes ...](https://shoes.allwomenstalk.com/fabulous-black-oscar-de-la-renta-pump-shoes/)
 - [5 Gorgeous Black versus Sandals ...](https://shoes.allwomenstalk.com/gorgeous-black-versus-sandals/)
+- [4 Glamorous Red Christian Dior Platform Shoes ...](https://shoes.allwomenstalk.com/glamorous-red-christian-dior-platform-shoes/)
+- [5 Glamorous Black Donna Karan Sandals ...](https://shoes.allwomenstalk.com/glamorous-black-donna-karan-sandals/)
+- [4 Gorgeous Brown Cole Haan Platform Shoes ...](https://shoes.allwomenstalk.com/gorgeous-brown-cole-haan-platform-shoes/)
+- [6 Fabulous Black Arfango Boots and Booties ...](https://shoes.allwomenstalk.com/fabulous-black-arfango-boots-and-booties/)
+- [8 Glamorous Beige Sergio Rossi Sandals ...](https://shoes.allwomenstalk.com/glamorous-beige-sergio-rossi-sandals/)
+- [8 Glamorous Beige Donna Karan Sandals ...](https://shoes.allwomenstalk.com/glamorous-beige-donna-karan-sandals/)
 - [5 Hot Black Stuart Weitzman Sandals ...](https://shoes.allwomenstalk.com/hot-black-stuart-weitzman-sandals/)
 - [blackjason](https://shoes.allwomenstalk.com/chic-black-jason-wu-boots-and-booties/)
-- [8 Glamorous Beige Donna Karan Sandals ...](https://shoes.allwomenstalk.com/glamorous-beige-donna-karan-sandals/)
-- [5 Glamorous Black Donna Karan Sandals ...](https://shoes.allwomenstalk.com/glamorous-black-donna-karan-sandals/)
+- [8 Fabulous Black Oscar De La Renta Pump Shoes ...](https://shoes.allwomenstalk.com/fabulous-black-oscar-de-la-renta-pump-shoes/)
 - [15 Fabulous Black Raphael Young High Heels ...](https://shoes.allwomenstalk.com/fabulous-black-raphael-young-high-heels/)
 - [8 Pretty Platform Shoes ...](https://shoes.allwomenstalk.com/pretty-platform-shoes/)
 

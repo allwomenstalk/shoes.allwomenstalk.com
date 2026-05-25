@@ -3,7 +3,7 @@ title: "What Makes Paradise 100 Sandals So Unique?"
 description: "The Story Behind the Paradise 100 Sandal; A Closer Look at Craftsmanship; Style Tips for Your Paradise 100 Sandals; Join the Conversation; More ..."
 url: "https://shoes.allwomenstalk.com/paradise-100-sandal-stuart-weitzman/"
 category: "shoes"
-last_updated: "2026-05-22"
+last_updated: "2026-05-25"
 ---
 
 # What Makes Paradise 100 Sandals So Unique?

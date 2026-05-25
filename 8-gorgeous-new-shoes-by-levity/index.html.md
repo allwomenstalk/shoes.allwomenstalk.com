@@ -3,7 +3,7 @@ title: "8 Gorgeous New Shoes by Levity ..."
 description: "Levity Sax Wedge Sandal; Levity Sadie Wedge Sandal; Levity Sam Bootie; Levity Suzie Leather Bootie; Levity Snap Wedge Sandal; More ..."
 url: "https://shoes.allwomenstalk.com/8-gorgeous-new-shoes-by-levity/"
 category: "shoes"
-last_updated: "2026-05-22"
+last_updated: "2026-05-25"
 ---
 
 # 8 Gorgeous New Shoes by Levity ...
@@ -70,16 +70,16 @@ Now that you’ve seen just a few of their shoes, can you see why I’m in love 
 
 ## Related Posts
 
-- [sexy sandals](https://shoes.allwomenstalk.com/sexy-pairs-of-sandals-from-zappos/)
-- [7 Terrific Two-Tone Shoes ...](https://shoes.allwomenstalk.com/7-terrific-two-tone-shoes/)
-- [7 Stylish Sneakers ...](https://shoes.allwomenstalk.com/7-stylish-sneakers/)
-- [best ballerina shoes](https://shoes.allwomenstalk.com/8-sporty-ballet-flats/)
-- [8 Lace-up Shoes under 50 ...](https://shoes.allwomenstalk.com/8-lace-up-shoes-under-50/)
-- [gabriella rocha boots](https://shoes.allwomenstalk.com/7-boots-to-buy-that-arent-uggs/)
 - [zappos boat shoes](https://shoes.allwomenstalk.com/fabulous-boat-shoes/)
 - [fashion wellington boots](https://shoes.allwomenstalk.com/stylish-wellington-boots/)
+- [7 Terrific Two-Tone Shoes ...](https://shoes.allwomenstalk.com/7-terrific-two-tone-shoes/)
+- [best ballerina shoes](https://shoes.allwomenstalk.com/8-sporty-ballet-flats/)
 - [7 Woven-Detail Shoes ...](https://shoes.allwomenstalk.com/woven-detail-shoes/)
+- [sexy sandals](https://shoes.allwomenstalk.com/sexy-pairs-of-sandals-from-zappos/)
+- [7 Stylish Sneakers ...](https://shoes.allwomenstalk.com/7-stylish-sneakers/)
 - [7 New Season Pointed Shoes ...](https://shoes.allwomenstalk.com/new-season-pointed-shoes/)
+- [gabriella rocha boots](https://shoes.allwomenstalk.com/7-boots-to-buy-that-arent-uggs/)
+- [8 Lace-up Shoes under 50 ...](https://shoes.allwomenstalk.com/8-lace-up-shoes-under-50/)
 - [8 Gorgeous Black Yves Saint Laurent High Heels ...](https://shoes.allwomenstalk.com/gorgeous-black-yves-saint-laurent-high-heels/)
 - [8 Gorgeous Shoes by Seychelles ...](https://shoes.allwomenstalk.com/8-gorgeous-shoes-by-seychelles/)
 

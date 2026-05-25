@@ -3,7 +3,7 @@ title: "13 Best DOrsay Flats That Need to Occupy Your Closet ..."
 description: "Madewell the D’Orsay Flat; Jenni Kayne Cheetah Printed Pony Hair and Leather Pointed Toe Flat; Jeffrey Campbell in Love D’Orsay Flats; Chinese Laundry ‘Easy Does It’ Flat; Vamp by Steve Madden; More ..."
 url: "https://shoes.allwomenstalk.com/best-dorsay-flats/"
 category: "shoes"
-last_updated: "2026-05-22"
+last_updated: "2026-05-25"
 ---
 
 # 13 Best DOrsay Flats That Need to Occupy Your Closet ...
@@ -116,16 +116,16 @@ Your shoes are down low, but that doesn’t mean that others won’t notice them
 
 ## Related Posts
 
+- [leopard print calf hair pumps](https://shoes.allwomenstalk.com/best-calf-hair-pumps/)
+- [which shoes give the most height](https://shoes.allwomenstalk.com/great-shoes-that-boost-your-height-and-confidence-levels/)
 - [how to keep your feet dry in rain](https://shoes.allwomenstalk.com/rain-boots-that-will-keep-your-kids-feet-dry-when-they-splash-in-rain-puddles/)
 - [comfortable stylish shoes](https://shoes.allwomenstalk.com/shoes-from-naturalizer-that-are-comfortable-and-stylish/)
-- [leopard print calf hair pumps](https://shoes.allwomenstalk.com/best-calf-hair-pumps/)
-- [types if shoes](https://shoes.allwomenstalk.com/styles-of-shoes-from-around-the-world/)
-- [best exercise sneakers](https://shoes.allwomenstalk.com/best-fitness-shoes-to-ask-for-this-christmas/)
-- [quotes shoes life](https://shoes.allwomenstalk.com/fabulous-quotes-about-footwear-for-shoe-lovers-everywhere/)
 - [pvc pipe shoe rack](https://shoes.allwomenstalk.com/smart-ideas-for-taming-your-shoe-nado/)
-- [which shoes give the most height](https://shoes.allwomenstalk.com/great-shoes-that-boost-your-height-and-confidence-levels/)
-- [oxford shoes brands](https://shoes.allwomenstalk.com/the-best-oxford-shoes/)
+- [quotes shoes life](https://shoes.allwomenstalk.com/fabulous-quotes-about-footwear-for-shoe-lovers-everywhere/)
+- [best exercise sneakers](https://shoes.allwomenstalk.com/best-fitness-shoes-to-ask-for-this-christmas/)
 - [menswear inspired shoes](https://shoes.allwomenstalk.com/menswear-style-shoes-you-can-wear-with-your-ladylike-outfits/)
+- [types if shoes](https://shoes.allwomenstalk.com/styles-of-shoes-from-around-the-world/)
+- [oxford shoes brands](https://shoes.allwomenstalk.com/the-best-oxford-shoes/)
 - [6 Glamorous Black Stuart Weitzman Flats ...](https://shoes.allwomenstalk.com/glamorous-black-stuart-weitzman-flats/)
 - [5 Fabulous Black Jean-Michel Cazabat Flats ...](https://shoes.allwomenstalk.com/fabulous-black-jean-michel-cazabat-flats/)
 

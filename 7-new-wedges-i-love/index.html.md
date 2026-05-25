@@ -3,7 +3,7 @@ title: "7 New Wedges I Love ..."
 description: "Chinese Laundry \"Come Together\" Wedges; Poetic License \"Magical Sunset\" Wedges; Springtime Brunch Espadrille Wedges; The Leaves' Lyrics Grey Wedges; Restricted \"Carley\" Mary Jane Wedges; More ..."
 url: "https://shoes.allwomenstalk.com/7-new-wedges-i-love/"
 category: "shoes"
-last_updated: "2026-05-22"
+last_updated: "2026-05-25"
 ---
 
 # 7 New Wedges I Love ...
@@ -62,15 +62,15 @@ Any of these wedges would make an ideal addition to your spring wardrobeâ€¦ youâ
 ## Related Posts
 
 - [summer shoes flats](https://shoes.allwomenstalk.com/cute-summer-flat-shoes-youll-love/)
-- [8 Cute Shoes by Born ...](https://shoes.allwomenstalk.com/8-cute-shoes-by-born/)
 - [7 Shoes to Wear in Warm Weather ...](https://shoes.allwomenstalk.com/shoes-to-wear-in-warm-weather/)
+- [girly sneakers](https://shoes.allwomenstalk.com/sweet-girly-sneakers/)
 - [8 Fab Studded Shoes ...](https://shoes.allwomenstalk.com/fab-studded-shoes/)
 - [8 Adorably Lovely Shoes to Wear with Skinny Jeans ...](https://shoes.allwomenstalk.com/adorably-lovely-shoes-to-wear-with-skinny-jeans/)
 - [loafers preppy](https://shoes.allwomenstalk.com/preppy-loafers/)
 - [adult t bar shoes](https://shoes.allwomenstalk.com/trendy-t-bar-shoes-a-fashionista-cant-do-without/)
-- [spine heels](https://shoes.allwomenstalk.com/daring-shoe-designs/)
+- [8 Cute Shoes by Born ...](https://shoes.allwomenstalk.com/8-cute-shoes-by-born/)
 - [studded shoes flats](https://shoes.allwomenstalk.com/studded-flat-shoes/)
-- [girly sneakers](https://shoes.allwomenstalk.com/sweet-girly-sneakers/)
+- [spine heels](https://shoes.allwomenstalk.com/daring-shoe-designs/)
 - [7 Stylish Sneakers ...](https://shoes.allwomenstalk.com/7-stylish-sneakers/)
 - [7 Fab Shoes with Fringe ...](https://shoes.allwomenstalk.com/fab-shoes-with-fringe/)
 
