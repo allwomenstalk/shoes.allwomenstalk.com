@@ -3,7 +3,7 @@ title: "7 British Shoe Designers That Are on Trend in 2014 ..."
 description: "Stella McCartney Removable-Cuff Flat Chain Sandal; Vivienne Westwood Lady Dragon Heeled Sandal; Alexander McQueen Crochet Embroidered Pump; Hunter Boots Original Brit Welly; Karen Millen Suede Coral Peep Toe Heels; More ..."
 url: "https://shoes.allwomenstalk.com/british-shoe-designers-that-are-on-trend-in/"
 category: "shoes"
-last_updated: "2026-05-25"
+last_updated: "2026-05-27"
 ---
 
 # 7 British Shoe Designers That Are on Trend in 2014 ...
@@ -56,15 +56,15 @@ So as you can see, British shoe designers are getting a little kooky this year. 
 
 ## Related Posts
 
-- [padlock necklace trend](https://jewelry.allwomenstalk.com/spring-jewelry-trends-you-can-rock/)
-- [paris color riche stylo eye bottomless](https://makeup.allwomenstalk.com/spring-makeup-trends-that-every-woman-can-follow/)
-- [the workout digest](https://fitness.allwomenstalk.com/fitness-trends-for/)
-- [gama naif](https://makeup.allwomenstalk.com/big-makeup-trends-for-spring/)
 - [2014 style trends](https://fashion.allwomenstalk.com/fun-s-fashion-trends-that-are-back-for/)
-- [contrast in fashion](https://fashion.allwomenstalk.com/unexpected-fashion-week-trends-and-how-to-wear-them/)
+- [the workout digest](https://fitness.allwomenstalk.com/fitness-trends-for/)
 - [new black colour](https://fashion.allwomenstalk.com/reasons-the-color-nude-is-the-new-black-this-year/)
-- [practical and fashionable](https://fashion.allwomenstalk.com/of-the-least-practical-fashion-trends-that-ever-existed/)
+- [paris color riche stylo eye bottomless](https://makeup.allwomenstalk.com/spring-makeup-trends-that-every-woman-can-follow/)
+- [contrast in fashion](https://fashion.allwomenstalk.com/unexpected-fashion-week-trends-and-how-to-wear-them/)
+- [gama naif](https://makeup.allwomenstalk.com/big-makeup-trends-for-spring/)
 - [2014 hair trends](https://beauty.allwomenstalk.com/hot-hair-and-beauty-trends-for-spring-to-look-forward-to/)
+- [practical and fashionable](https://fashion.allwomenstalk.com/of-the-least-practical-fashion-trends-that-ever-existed/)
+- [padlock necklace trend](https://jewelry.allwomenstalk.com/spring-jewelry-trends-you-can-rock/)
 - [timeless styles](https://fashion.allwomenstalk.com/timeless-fashion-trends-that-will-never-go-out-of-style/)
 - [7 Stylish Sneakers ...](https://shoes.allwomenstalk.com/7-stylish-sneakers/)
 - [7 Classic Designer Shoes to Invest into ...](https://shoes.allwomenstalk.com/classic-designer-shoes-to-invest-into/)

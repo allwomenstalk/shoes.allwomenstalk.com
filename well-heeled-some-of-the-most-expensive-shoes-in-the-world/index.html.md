@@ -3,7 +3,7 @@ title: "Well Heeled: Some of the Most Expensive Shoes in the World ..."
 description: "Harry Winston - Ruby Slippers; Stuart Weitzman – Tanzanite Heels; Air Jordan – Silver Shoes; Stuart Weitzman – Diamond Dream Stilettos; Stuart Weitzman – Platinum Guild Stilettos; More ..."
 url: "https://shoes.allwomenstalk.com/well-heeled-some-of-the-most-expensive-shoes-in-the-world/"
 category: "shoes"
-last_updated: "2026-05-25"
+last_updated: "2026-05-27"
 ---
 
 # Well Heeled: Some of the Most Expensive Shoes in the World ...
@@ -56,15 +56,15 @@ Incredible aren’t they? What’s the most you have paid for a pair of shoes?
 
 ## Related Posts
 
-- [how to make sandals more comfortable](https://shoes.allwomenstalk.com/make-your-sandals-and-flip-flops-feel-comfy/)
 - [bling flipflops](https://shoes.allwomenstalk.com/get-ready-for-some-bling-pairs-of-jeweled-flip-flops-to-wear-all-summer-long/)
-- [sweaty teen feet](https://beauty.allwomenstalk.com/keep-your-feet-free-from-stink-and-sweat/)
 - [cant walk in heels](https://shoes.allwomenstalk.com/cant-handle-heels-tips-to-make-walking-in-them-way-easier/)
-- [beach themed ankle bracelet](https://jewelry.allwomenstalk.com/show-your-toes-some-love-wear-some-of-these-bits-of-beach-jewelry-for-your-feet/)
-- [prom shoes not heels](https://shoes.allwomenstalk.com/heels-to-wear-to-prom/)
-- [shoes to add height for amusement park](https://shoes.allwomenstalk.com/types-of-shoes-every-woman-needs-for-summer/)
-- [gladiator sandals costume](https://shoes.allwomenstalk.com/ways-to-wear-gladiator-sandals-that-would-turn-russell-crowes-head/)
+- [sweaty teen feet](https://beauty.allwomenstalk.com/keep-your-feet-free-from-stink-and-sweat/)
 - [do white sneakers go with everything](https://fashion.allwomenstalk.com/fashion-trend-clean-white-sneakers-and-how-you-can-wear-them-with-pretty-much-everything/)
+- [how to make sandals more comfortable](https://shoes.allwomenstalk.com/make-your-sandals-and-flip-flops-feel-comfy/)
+- [gladiator sandals costume](https://shoes.allwomenstalk.com/ways-to-wear-gladiator-sandals-that-would-turn-russell-crowes-head/)
+- [prom shoes not heels](https://shoes.allwomenstalk.com/heels-to-wear-to-prom/)
+- [beach themed ankle bracelet](https://jewelry.allwomenstalk.com/show-your-toes-some-love-wear-some-of-these-bits-of-beach-jewelry-for-your-feet/)
+- [shoes to add height for amusement park](https://shoes.allwomenstalk.com/types-of-shoes-every-woman-needs-for-summer/)
 - [black summer sandal](https://shoes.allwomenstalk.com/pairs-of-black-summer-sandals-that-will-drop-your-jaw/)
 - [8 Wonderful Wooden Heeled Shoes ...](https://shoes.allwomenstalk.com/8-wonderful-wooden-heeled-shoes/)
 - [9 Jaw-Dropping Louboutin Shoes ...](https://shoes.allwomenstalk.com/jaw-dropping-louboutin-shoes/)
