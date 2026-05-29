@@ -3,7 +3,7 @@ title: "9 Studded Flat Shoes ..."
 description: "Marc by Marc Jacobs Studded Leather Mouse Ballerina Flats; Topshop Miracle Grey Stud Bow Pumps; ASOS Lottie Stud Ballerina; Lanvin Stud and Jewel Sandals; Topshop Kosy Black Studded Slippers; More ..."
 url: "https://shoes.allwomenstalk.com/studded-flat-shoes/"
 category: "shoes"
-last_updated: "2026-05-27"
+last_updated: "2026-05-29"
 ---
 
 # 9 Studded Flat Shoes ...
@@ -69,14 +69,14 @@ Top image source: [data.whicdn.com](http://data.whicdn.com/images/7735734/tumblr
 
 - [wooden soled shoes](https://shoes.allwomenstalk.com/wonderful-wood-soled-shoes/)
 - [8 Adorably Lovely Shoes to Wear with Skinny Jeans ...](https://shoes.allwomenstalk.com/adorably-lovely-shoes-to-wear-with-skinny-jeans/)
-- [stripe shoes](https://shoes.allwomenstalk.com/striped-shoes/)
-- [7 Tasselled Shoes ...](https://shoes.allwomenstalk.com/tasselled-shoes/)
 - [adult t bar shoes](https://shoes.allwomenstalk.com/trendy-t-bar-shoes-a-fashionista-cant-do-without/)
 - [summer shoes flats](https://shoes.allwomenstalk.com/cute-summer-flat-shoes-youll-love/)
 - [slip fashion boots meaning](https://shoes.allwomenstalk.com/stylish-slip-on-boots-to-try-on/)
+- [7 Tasselled Shoes ...](https://shoes.allwomenstalk.com/tasselled-shoes/)
 - [spine heels](https://shoes.allwomenstalk.com/daring-shoe-designs/)
-- [mary janes shoes](https://shoes.allwomenstalk.com/cute-mary-jane-shoes/)
 - [do black boots go with everything](https://shoes.allwomenstalk.com/sexy-knee-high-boots-that-go-with-everything/)
+- [stripe shoes](https://shoes.allwomenstalk.com/striped-shoes/)
+- [mary janes shoes](https://shoes.allwomenstalk.com/cute-mary-jane-shoes/)
 - [9 Chic Brown Brian Atwood Flats ...](https://shoes.allwomenstalk.com/chic-brown-brian-atwood-flats/)
 - [9 Cut-out Detail Shoes ...](https://shoes.allwomenstalk.com/9-cut-out-detail-shoes/)
 

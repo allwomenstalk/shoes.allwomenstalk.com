@@ -3,7 +3,7 @@ title: "8 Pretty Patterned Shoes ..."
 description: "Betsey Johnson Vitas; Lace-up Platform Heel Bootie; Tie-Dye Pointed Wedges; Kate Spade New York Terry; TOMS Silver Holiday Women’s Classics; More ..."
 url: "https://shoes.allwomenstalk.com/pretty-patterned-shoes/"
 category: "shoes"
-last_updated: "2026-05-27"
+last_updated: "2026-05-29"
 ---
 
 # 8 Pretty Patterned Shoes ...
@@ -62,15 +62,15 @@ These are 8 of my favorite pairs of pretty printed shoes. Which ones are your fa
 
 ## Related Posts
 
-- [what kind of socks to wear with boots](https://shoes.allwomenstalk.com/beautiful-socks-to-wear-with-boots/)
 - [8 Pretty Pumps under 30 ...](https://shoes.allwomenstalk.com/pretty-pumps-under-30/)
 - [7 Cute Cut-out Shoes for Spring ...](https://shoes.allwomenstalk.com/cute-cut-out-shoes-for-spring/)
-- [7 Ways to Make Your Shoes Last Longer ...](https://shoes.allwomenstalk.com/ways-to-make-your-shoes-last-longer/)
-- [8 Ways to save Your Party Feet ...](https://shoes.allwomenstalk.com/ways-to-save-your-party-feet/)
 - [7 Stunning Winter Wedding Shoes ...](https://shoes.allwomenstalk.com/stunning-winter-wedding-shoes/)
-- [7 Tips on Choosing Running Shoes ...](https://lifestyle.allwomenstalk.com/tips-on-choosing-running-shoes/)
-- [8 Pretty Pastel Shoes ...](https://shoes.allwomenstalk.com/pretty-pastel-shoes/)
 - [8 New Season Studded Shoes ...](https://shoes.allwomenstalk.com/new-season-studded-shoes/)
+- [7 Tips on Choosing Running Shoes ...](https://lifestyle.allwomenstalk.com/tips-on-choosing-running-shoes/)
+- [7 Ways to Make Your Shoes Last Longer ...](https://shoes.allwomenstalk.com/ways-to-make-your-shoes-last-longer/)
+- [what kind of socks to wear with boots](https://shoes.allwomenstalk.com/beautiful-socks-to-wear-with-boots/)
+- [8 Ways to save Your Party Feet ...](https://shoes.allwomenstalk.com/ways-to-save-your-party-feet/)
+- [8 Pretty Pastel Shoes ...](https://shoes.allwomenstalk.com/pretty-pastel-shoes/)
 - [8 Stylish New Season Wedge Shoes ...](https://shoes.allwomenstalk.com/stylish-new-season-wedge-shoes/)
 - [8 Cute Shoes by Born ...](https://shoes.allwomenstalk.com/8-cute-shoes-by-born/)
 - [8 Cute Sequined Ballet Flats ...](https://shoes.allwomenstalk.com/8-cute-sequined-ballet-flats/)

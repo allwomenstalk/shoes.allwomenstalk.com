@@ -3,7 +3,7 @@ title: "Glitzy Shoes Dorothy Would Be Envious of ..."
 description: "Faith Levin Blue Glitter Heeled Sandals; Badgley Mischka Serra Evening Pumps; Joanie by Madison; ASOS ATLANTIS 60's Ankle Boots; Maryssa by Madison; More ..."
 url: "https://shoes.allwomenstalk.com/glitzy-shoes-dorothy-would-be-envious-of/"
 category: "shoes"
-last_updated: "2026-05-27"
+last_updated: "2026-05-29"
 ---
 
 # Glitzy Shoes Dorothy Would Be Envious of ...
@@ -129,15 +129,15 @@ Which have you got your eye on?
 ## Related Posts
 
 - [beau monde rehab](https://shoes.allwomenstalk.com/gorgeous-flats-for-girls-who-dont-like-heels/)
-- [shoes every woman should own](https://shoes.allwomenstalk.com/the-rules-of-shoes-every-woman-should-live-by/)
-- [how to wear strappy heels without pain](https://shoes.allwomenstalk.com/tips-for-wearing-sexy-heels-all-day-long-without-suffering/)
-- [ankle tattoo women](https://beauty.allwomenstalk.com/adorable-foot-tattoos-that-are-easy-to-cover/)
-- [boots for short dresses](https://fashion.allwomenstalk.com/how-short-girls-can-get-away-with-wearing-knee-high-boots/)
 - [show your toes](https://shoes.allwomenstalk.com/show-off-your-toes-with-these-springtime-sandals/)
-- [i dont wear heels](https://shoes.allwomenstalk.com/you-dont-have-to-wear-heels-if-youre-short/)
-- [best strappy sandals](https://shoes.allwomenstalk.com/strappy-summer-sandals-that-are-super-comfy/)
 - [genius shoes](https://shoes.allwomenstalk.com/how-to-help-your-white-sneakers-stay-white/)
+- [shoes every woman should own](https://shoes.allwomenstalk.com/the-rules-of-shoes-every-woman-should-live-by/)
+- [best strappy sandals](https://shoes.allwomenstalk.com/strappy-summer-sandals-that-are-super-comfy/)
+- [ankle tattoo women](https://beauty.allwomenstalk.com/adorable-foot-tattoos-that-are-easy-to-cover/)
 - [big feet beauty](https://shoes.allwomenstalk.com/beauties-with-big-feet-should-buy-these-stylish-shoes/)
+- [i dont wear heels](https://shoes.allwomenstalk.com/you-dont-have-to-wear-heels-if-youre-short/)
+- [how to wear strappy heels without pain](https://shoes.allwomenstalk.com/tips-for-wearing-sexy-heels-all-day-long-without-suffering/)
+- [boots for short dresses](https://fashion.allwomenstalk.com/how-short-girls-can-get-away-with-wearing-knee-high-boots/)
 - [20 Stylish Metallic Diane Von Furstenberg High Hee...](https://shoes.allwomenstalk.com/stylish-metallic-diane-von-furstenberg-high-heels/)
 - [7 Glamorous Green Stuart Weitzman High Heels ...](https://shoes.allwomenstalk.com/glamorous-green-stuart-weitzman-high-heels/)
 
