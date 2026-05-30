@@ -3,7 +3,7 @@ title: "Discover the Allure of Angelica Burgundy Leather Sandals and..."
 description: "Angelica Burgundy Leather Sandals; Bumi Onix Black Leather Ballet Flats; Lotte Black Leather Ballet Flats; Cendana Red Leather Ballet Flats; Catherine Light Grey Leather Mules; More ..."
 url: "https://shoes.allwomenstalk.com/alohas-effortless-chic-footwear/"
 category: "shoes"
-last_updated: "2026-05-29"
+last_updated: "2026-05-30"
 ---
 
 # Discover the Allure of Angelica Burgundy Leather Sandals and...

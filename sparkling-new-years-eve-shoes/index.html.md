@@ -3,7 +3,7 @@ title: "7 Sparkling New Years Eve Shoes ..."
 description: "Diamond Princess Platform Pump; Truth or Dare by Madonna Jarrard; Chinese Laundry Fall for Glitter; Kate Spade New York Licorice Too; Betsey Johnson Bliiingg; More ..."
 url: "https://shoes.allwomenstalk.com/sparkling-new-years-eve-shoes/"
 category: "shoes"
-last_updated: "2026-05-29"
+last_updated: "2026-05-30"
 ---
 
 # 7 Sparkling New Years Eve Shoes ...
@@ -52,16 +52,16 @@ These 7 pairs of New Year’s Eve shoes will help you make a statement at any pa
 
 ## Related Posts
 
-- [neon flats](https://shoes.allwomenstalk.com/funky-neon-flats/)
-- [cinderella shoes](https://shoes.allwomenstalk.com/cinderella-inspired-shoes/)
-- [black little mermaid shoes](https://shoes.allwomenstalk.com/little-mermaid-inspired-shoes/)
-- [fabulous flats](https://shoes.allwomenstalk.com/fabulous-flats-under-20/)
-- [shoes with cat design](https://shoes.allwomenstalk.com/cool-cat-shoes/)
 - [barefoot shoes for sports](https://shoes.allwomenstalk.com/best-barefoot-shoes/)
-- [best lbd](https://shoes.allwomenstalk.com/best-shoes-for-your-lbd/)
-- [sleeping beauty heels](https://shoes.allwomenstalk.com/sleeping-beauty-inspired-shoes/)
+- [neon flats](https://shoes.allwomenstalk.com/funky-neon-flats/)
 - [bow booties](https://shoes.allwomenstalk.com/beautiful-bow-boots/)
+- [shoes with cat design](https://shoes.allwomenstalk.com/cool-cat-shoes/)
+- [black little mermaid shoes](https://shoes.allwomenstalk.com/little-mermaid-inspired-shoes/)
 - [t strap designer shoes](https://shoes.allwomenstalk.com/stylish-t-strap-shoes/)
+- [best lbd](https://shoes.allwomenstalk.com/best-shoes-for-your-lbd/)
+- [fabulous flats](https://shoes.allwomenstalk.com/fabulous-flats-under-20/)
+- [sleeping beauty heels](https://shoes.allwomenstalk.com/sleeping-beauty-inspired-shoes/)
+- [cinderella shoes](https://shoes.allwomenstalk.com/cinderella-inspired-shoes/)
 - [7 Stylish Sneakers ...](https://shoes.allwomenstalk.com/7-stylish-sneakers/)
 - [7 Tasselled Shoes ...](https://shoes.allwomenstalk.com/tasselled-shoes/)
 
