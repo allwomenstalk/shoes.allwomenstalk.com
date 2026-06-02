@@ -3,7 +3,7 @@ title: "5 Fabulous Red Pierre Hardy Boots and Booties ..."
 description: "#1; #2; More ..."
 url: "https://shoes.allwomenstalk.com/fabulous-red-pierre-hardy-boots-and-booties/"
 category: "shoes"
-last_updated: "2026-05-30"
+last_updated: "2026-06-02"
 ---
 
 # 5 Fabulous Red Pierre Hardy Boots and Booties ...
