@@ -1,12 +1,12 @@
 ---
-title: "17 High Heels for Short Girls Who Dont Want to Fall down ..."
+title: "17 High Heels for Short Girls Who Don't Want to Fall down ..."
 description: "Dancey Drew Heel in Parchment; New Orleans Lease on Life Heel in Mint; Band the Truth Heel; Edgy Which Where Heel; Treasure Stroll Heel in Garden; More ..."
 url: "https://shoes.allwomenstalk.com/high-heels-for-short-girls-who-dont-want-to-fall-down/"
 category: "shoes"
-last_updated: "2026-06-02"
+last_updated: "2026-06-07"
 ---
 
-# 17 High Heels for Short Girls Who Dont Want to Fall down ...
+# 17 High Heels for Short Girls Who Don't Want to Fall down ...
 
 In theory, I love high heels. In practice, I am a fat girl with short legs, small feet, horrible depth perception, and not one, single ounce of grace in my entire body. Not only am I horrendously clumsy, thus increasing my chances of turning an ankle or faceplanting every time I wear a heel above half an inch, but they always make my feet want to fall off and die within the first five minutes. My relationship with heels is so acrimonious that for my wedding, I wore a pair of Doc Marten boots – with platforms. I know I cannot be the only short girl with a crap sense of balance who still wants to wear heels occasionally, yes? Please tell me I'm not alone. Let's compare scars – but first, let's check out these heels that just might work for us … without making us fall on our faces or our butts.
 
@@ -150,16 +150,16 @@ I don't wear heels often, but when I do, I want them to be pretty, comfortable, 
 
 ## Related Posts
 
-- [shoes 101](https://shoes.allwomenstalk.com/what-does-your-shoe-style-say-about-you/)
 - [big feet women](https://shoes.allwomenstalk.com/this-summers-sexiest-sandals-ever-for-girls-with-big-feet/)
-- [best shoes for prom](https://shoes.allwomenstalk.com/put-your-best-foot-forward-with-the-hot-prom-shoes-of/)
-- [high heels to flats](https://shoes.allwomenstalk.com/perfect-first-pair-of-heels-to-buy-for-girls-who-always-wear-flats/)
 - [poular shoes](https://shoes.allwomenstalk.com/insanely-stylish-shoes-to-fill-your-closet-with-this-season/)
-- [fall designer shoes](https://shoes.allwomenstalk.com/these-are-the-must-have-shoe-styles-for-this-fall/)
-- [cinderella flat shoes](https://shoes.allwomenstalk.com/cinderella-shoes-for-girls-who-are-going-to-the-ball/)
-- [christmas high heels](https://shoes.allwomenstalk.com/hottest-heels-to-wear-to-christmas-and-new-year-parties/)
-- [zappos tuxedo shoes](https://shoes.allwomenstalk.com/hottest-white-shoes-its-okay-to-wear-now/)
+- [shoes 101](https://shoes.allwomenstalk.com/what-does-your-shoe-style-say-about-you/)
 - [jimmy choo lace up boots](https://shoes.allwomenstalk.com/hottest-jimmy-choo-boots-on-sale-right-now/)
+- [christmas high heels](https://shoes.allwomenstalk.com/hottest-heels-to-wear-to-christmas-and-new-year-parties/)
+- [cinderella flat shoes](https://shoes.allwomenstalk.com/cinderella-shoes-for-girls-who-are-going-to-the-ball/)
+- [best shoes for prom](https://shoes.allwomenstalk.com/put-your-best-foot-forward-with-the-hot-prom-shoes-of/)
+- [fall designer shoes](https://shoes.allwomenstalk.com/these-are-the-must-have-shoe-styles-for-this-fall/)
+- [high heels to flats](https://shoes.allwomenstalk.com/perfect-first-pair-of-heels-to-buy-for-girls-who-always-wear-flats/)
+- [zappos tuxedo shoes](https://shoes.allwomenstalk.com/hottest-white-shoes-its-okay-to-wear-now/)
 - [17 Glamorous Brown Fendi High Heels ...](https://shoes.allwomenstalk.com/glamorous-brown-fendi-high-heels/)
 - [17 Beautiful Black Christian Louboutin High Heels ...](https://shoes.allwomenstalk.com/beautiful-black-christian-louboutin-high-heels/)
 

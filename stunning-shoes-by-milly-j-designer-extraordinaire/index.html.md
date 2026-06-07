@@ -1,12 +1,12 @@
 ---
-title: "31 Stunning Shoes by Milly J Designer Extraordinaire ..."
+title: "31 Stunning Shoes by Milly J, Designer Extraordinaire ..."
 description: "Dali; Licorice Allsorts; Social Media; Tap Shoe; Tiffany’s; More ..."
 url: "https://shoes.allwomenstalk.com/stunning-shoes-by-milly-j-designer-extraordinaire/"
 category: "shoes"
-last_updated: "2026-06-02"
+last_updated: "2026-06-07"
 ---
 
-# 31 Stunning Shoes by Milly J Designer Extraordinaire ...
+# 31 Stunning Shoes by Milly J, Designer Extraordinaire ...
 
 You may not have seen or heard of shoes by Milly J, but after seeing her wonderful creations here, you’’ll be wondering why. Milly J is a British shoe designer (and now sculpture artist) who makes the most incredible creations for feet. Her range includes ready to wear, haute couture and custom/made to order. Shoes by Milly J have been described as "Art to Walk In" and "Walking Art" and here's why:
 
@@ -230,16 +230,16 @@ What do you think about the Milly J collection? Would you ever pay for a pair of
 
 ## Related Posts
 
-- [8 Pretty Mary Jane Flats ...](https://allwomenstalk.com/pretty-mary-jane-flats/)
 - [Lauren Ralph Lauren Jayel Pump](https://allwomenstalk.com/lauren-ralph-lauren-jayel-pump/)
+- [2 Die 4: Nicholas Kirkwood Fluro Python Lace-up Sa...](https://allwomenstalk.com/2-die-4-nicholas-kirkwood-fluro-python-lace-up-sandals/)
+- [2 Die 4: Sergio Rossi Suede Boots](https://allwomenstalk.com/2-die-4-sergio-rossi-suede-boots/)
 - [emerald shoes](https://shoes.allwomenstalk.com/elegant-emerald-shoes/)
 - [2 Die 4: Sergio Rossi Red Patent Booties ...](https://allwomenstalk.com/2-die-4-sergio-rossi-red-patent-booties/)
-- [2 Die 4: Nicholas Kirkwood Fluro Python Lace-up Sa...](https://allwomenstalk.com/2-die-4-nicholas-kirkwood-fluro-python-lace-up-sandals/)
-- [8 Fabulous Colored Pumps for Spring ...](https://fashion.allwomenstalk.com/fabulous-colored-pumps-for-spring/)
-- [9 Gorgeous T-Strap Shoes ...](https://allwomenstalk.com/9-gorgeous-t-strap-shoes/)
 - [4 inch black heels](https://allwomenstalk.com/7-gorgeous-pairs-of-black-heels/)
-- [8 Marvelous LBHs Little Black Heels ...](https://allwomenstalk.com/8-marvelous-lbhs-little-black-heels/)
-- [2 Die 4: Sergio Rossi Suede Boots](https://allwomenstalk.com/2-die-4-sergio-rossi-suede-boots/)
+- [9 Gorgeous T-Strap Shoes ...](https://allwomenstalk.com/9-gorgeous-t-strap-shoes/)
+- [8 Pretty Mary Jane Flats ...](https://allwomenstalk.com/pretty-mary-jane-flats/)
+- [8 Fabulous Colored Pumps for Spring ...](https://fashion.allwomenstalk.com/fabulous-colored-pumps-for-spring/)
+- [8 Marvelous LBHs (Little Black Heels) ...](https://allwomenstalk.com/8-marvelous-lbhs-little-black-heels/)
 - [7 Beautiful Pastel Miu Miu High Heels ...](https://shoes.allwomenstalk.com/beautiful-pastel-miu-miu-high-heels/)
 - [4 Gorgeous Brown Miu Miu High Heels ...](https://shoes.allwomenstalk.com/gorgeous-brown-miu-miu-high-heels/)
 

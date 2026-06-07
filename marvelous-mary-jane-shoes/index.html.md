@@ -3,7 +3,7 @@ title: "8 Marvelous Mary Jane Shoes ..."
 description: "Outgoing for It Heel; Strut Your Strength Heel; Stay in Touchable Flat; Lace Platform Mary Janes; Double Strap Mary Janes; More ..."
 url: "https://shoes.allwomenstalk.com/marvelous-mary-jane-shoes/"
 category: "shoes"
-last_updated: "2026-06-02"
+last_updated: "2026-06-07"
 ---
 
 # 8 Marvelous Mary Jane Shoes ...
@@ -62,16 +62,16 @@ These are eight of the most stylish pairs of Mary Jane shoes on the ‘Net. Do y
 
 ## Related Posts
 
-- [stretch dr martens boots](https://shoes.allwomenstalk.com/safe-ways-to-stretch-too-small-shoes/)
-- [silver sneaker wedges](https://shoes.allwomenstalk.com/adorable-sneaker-wedges/)
-- [justfabulous](https://shoes.allwomenstalk.com/cutest-platform-pumps-from-justfabulous/)
-- [how to make rain boots shiny again](https://shoes.allwomenstalk.com/steps-to-care-for-your-wellies-and-make-them-last/)
 - [song new shoes](https://shoes.allwomenstalk.com/songs-about-shoes/)
+- [loved shoes](https://celebs.allwomenstalk.com/most-loved-shoes-by-celebrities/)
+- [silver sparkle shoes](https://shoes.allwomenstalk.com/shiny-and-stylish-silver-shoes/)
+- [silver sneaker wedges](https://shoes.allwomenstalk.com/adorable-sneaker-wedges/)
 - [8 espadrilles](https://shoes.allwomenstalk.com/stylish-espadrilles-for-spring-and-summer/)
 - [date night sandals](https://shoes.allwomenstalk.com/stylish-date-night-flats/)
-- [loved shoes](https://celebs.allwomenstalk.com/most-loved-shoes-by-celebrities/)
 - [stylish spring sandals](https://shoes.allwomenstalk.com/stylish-sandals-for-spring/)
-- [silver sparkle shoes](https://shoes.allwomenstalk.com/shiny-and-stylish-silver-shoes/)
+- [stretch dr martens boots](https://shoes.allwomenstalk.com/safe-ways-to-stretch-too-small-shoes/)
+- [justfabulous](https://shoes.allwomenstalk.com/cutest-platform-pumps-from-justfabulous/)
+- [how to make rain boots shiny again](https://shoes.allwomenstalk.com/steps-to-care-for-your-wellies-and-make-them-last/)
 - [8 Fabulous Green Marni High Heels ...](https://shoes.allwomenstalk.com/fabulous-green-marni-high-heels/)
 - [8 Fabulous Brown Michael Kors High Heels ...](https://shoes.allwomenstalk.com/fabulous-brown-michael-kors-high-heels/)
 
