@@ -3,7 +3,7 @@ title: "9 Fab DIY Shoe Tutorials ..."
 description: "DIY Sparkle and Glitter Shoes; DIY Spiked Heels; DIY Valentino-Inspired Lace Heels; DIY Crystal Heels; DIY Ombre Sneakers; More ..."
 url: "https://shoes.allwomenstalk.com/fab-diy-shoe-tutorials/"
 category: "shoes"
-last_updated: "2026-06-07"
+last_updated: "2026-06-11"
 ---
 
 # 9 Fab DIY Shoe Tutorials ...
@@ -50,15 +50,15 @@ These are 9 of the most fabulous footwear tutorials on YouTube today. Which ones
 ## Related Posts
 
 - [new york themed room decor](https://diy.allwomenstalk.com/awesome-nyc-inspired-diy-projects/)
-- [aztec art projects](https://diy.allwomenstalk.com/amazing-aztec-inspired-craft-projects/)
-- [crafts to do with your boyfriend](https://diy.allwomenstalk.com/cute-and-creative-confetti-crafts/)
-- [felt craft projects](https://diy.allwomenstalk.com/fantastic-felt-ball-craft-projects/)
-- [diy autumn wreaths](https://diy.allwomenstalk.com/fantastic-diy-fall-wreaths/)
-- [hot air balloon with paper](https://diy.allwomenstalk.com/incredibly-adorable-hot-air-balloon-craft-projects/)
-- [bleach print](https://diy.allwomenstalk.com/brilliant-diy-bleach-printing-projects/)
 - [hoodie picture ideas](https://diy.allwomenstalk.com/fantastic-diy-hoodie-craft-projects/)
-- [ecouterre](https://diy.allwomenstalk.com/utterly-impressive-diy-projects-to-make-a-bag/)
+- [hot air balloon with paper](https://diy.allwomenstalk.com/incredibly-adorable-hot-air-balloon-craft-projects/)
+- [felt craft projects](https://diy.allwomenstalk.com/fantastic-felt-ball-craft-projects/)
+- [aztec art projects](https://diy.allwomenstalk.com/amazing-aztec-inspired-craft-projects/)
+- [bleach print](https://diy.allwomenstalk.com/brilliant-diy-bleach-printing-projects/)
+- [crafts to do with your boyfriend](https://diy.allwomenstalk.com/cute-and-creative-confetti-crafts/)
 - [how to make mouse pads](https://lifestyle.allwomenstalk.com/easy-diy-mouse-pads/)
+- [ecouterre](https://diy.allwomenstalk.com/utterly-impressive-diy-projects-to-make-a-bag/)
+- [diy autumn wreaths](https://diy.allwomenstalk.com/fantastic-diy-fall-wreaths/)
 - [7 Super Cute DIY Projects ...](https://lifestyle.allwomenstalk.com/super-cute-diy-projects/)
 - [7 DIY Home Decor Projects ...](https://allwomenstalk.com/7-diy-home-decor-projects/)
 
