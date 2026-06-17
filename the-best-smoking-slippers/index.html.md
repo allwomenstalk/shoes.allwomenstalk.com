@@ -3,7 +3,7 @@ title: "The 13 Best Smoking Slippers ..."
 description: "Marc by Marc Jacobs Friends of Mine Dog Smoking Slippers; Tory Burch Easton Smoking Slippers; Loeffler Randall Blaise Flat; J.Crew Darby Suede Loafers; Burberry Heart-Print Calf Hair Smoking Slipper; More ..."
 url: "https://shoes.allwomenstalk.com/the-best-smoking-slippers/"
 category: "shoes"
-last_updated: "2026-06-13"
+last_updated: "2026-06-17"
 ---
 
 # The 13 Best Smoking Slippers ...
@@ -120,14 +120,14 @@ How will you wear your smoking slippers? They go easily from work to a night on 
 
 - [menswear inspired shoes](https://shoes.allwomenstalk.com/menswear-style-shoes-you-can-wear-with-your-ladylike-outfits/)
 - [different types of shoes for ladies](https://shoes.allwomenstalk.com/essential-types-of-shoes-all-women-should-have/)
-- [which shoes give the most height](https://shoes.allwomenstalk.com/great-shoes-that-boost-your-height-and-confidence-levels/)
 - [can you wear ankle boots in the summer](https://shoes.allwomenstalk.com/ways-to-make-ankle-boots-work-for-you/)
-- [best exercise sneakers](https://shoes.allwomenstalk.com/best-fitness-shoes-to-ask-for-this-christmas/)
-- [brown womens ankle boots](https://shoes.allwomenstalk.com/best-brown-ankle-boots/)
-- [new years eve heels](https://shoes.allwomenstalk.com/cute-flats-for-new-years-eve-and-beyond/)
-- [leopard print calf hair pumps](https://shoes.allwomenstalk.com/best-calf-hair-pumps/)
+- [which shoes give the most height](https://shoes.allwomenstalk.com/great-shoes-that-boost-your-height-and-confidence-levels/)
 - [d orsay sandals](https://shoes.allwomenstalk.com/best-dorsay-flats/)
+- [best exercise sneakers](https://shoes.allwomenstalk.com/best-fitness-shoes-to-ask-for-this-christmas/)
 - [health benefits of leather shoes](https://shoes.allwomenstalk.com/benefits-of-natural-leather-to-consider-when-buying-footwear/)
+- [leopard print calf hair pumps](https://shoes.allwomenstalk.com/best-calf-hair-pumps/)
+- [new years eve heels](https://shoes.allwomenstalk.com/cute-flats-for-new-years-eve-and-beyond/)
+- [brown womens ankle boots](https://shoes.allwomenstalk.com/best-brown-ankle-boots/)
 - [8 Stylish Suede Shoes ...](https://shoes.allwomenstalk.com/8-stylish-suede-shoes/)
 - [9 Cute Flip-Flops ...](https://shoes.allwomenstalk.com/cute-flip-flops/)
 
