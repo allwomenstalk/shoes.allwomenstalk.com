@@ -3,7 +3,7 @@ title: "7 Songs about Shoes ..."
 description: "\"These Boots Are Made for Walkin'\" by Nancy Sinatra; \"Dancing Shoes\" by Arctic Monkeys, Green River Ordinance, and Gavin Degraw; \"New Shoes\" by Paolo Nutini; \"Diamonds on the Soles of Her Shoes\" by Paul Simon; \"Blue Suede Shoes\" by Carl Perkins; More ..."
 url: "https://shoes.allwomenstalk.com/songs-about-shoes/"
 category: "shoes"
-last_updated: "2026-06-17"
+last_updated: "2026-06-25"
 ---
 
 # 7 Songs about Shoes ...
@@ -42,16 +42,16 @@ It's fun to have a bunch of songs on a playlist that have to do with a certain t
 
 ## Related Posts
 
+- [peep toe pumps](https://shoes.allwomenstalk.com/playful-peep-toe-pumps/)
+- [justfabulous](https://shoes.allwomenstalk.com/cutest-platform-pumps-from-justfabulous/)
+- [how to make rain boots shiny again](https://shoes.allwomenstalk.com/steps-to-care-for-your-wellies-and-make-them-last/)
+- [quirky converse](https://shoes.allwomenstalk.com/cool-converse-sneakers/)
+- [best street style shoes](https://streetstyle.allwomenstalk.com/great-street-style-shoes/)
 - [8 espadrilles](https://shoes.allwomenstalk.com/stylish-espadrilles-for-spring-and-summer/)
 - [stylish spring sandals](https://shoes.allwomenstalk.com/stylish-sandals-for-spring/)
-- [quirky converse](https://shoes.allwomenstalk.com/cool-converse-sneakers/)
-- [how to make rain boots shiny again](https://shoes.allwomenstalk.com/steps-to-care-for-your-wellies-and-make-them-last/)
 - [silver sparkle shoes](https://shoes.allwomenstalk.com/shiny-and-stylish-silver-shoes/)
-- [boots for women under 200](https://fashion.allwomenstalk.com/ladies-boots-and-how-to-wear-them/)
-- [justfabulous](https://shoes.allwomenstalk.com/cutest-platform-pumps-from-justfabulous/)
-- [peep toe pumps](https://shoes.allwomenstalk.com/playful-peep-toe-pumps/)
-- [best street style shoes](https://streetstyle.allwomenstalk.com/great-street-style-shoes/)
 - [world famous shoes brand name](https://shoes.allwomenstalk.com/of-the-most-popular-shoe-brands-in-the-world/)
+- [boots for women under 200](https://fashion.allwomenstalk.com/ladies-boots-and-how-to-wear-them/)
 - [7 Must Have Shoe Accessories ...](https://shoes.allwomenstalk.com/7-must-have-shoe-accessories/)
 - [7 Glitter-Finish Shoes ...](https://shoes.allwomenstalk.com/7-glitter-finish-shoes/)
 
