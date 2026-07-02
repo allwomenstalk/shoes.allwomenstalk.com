@@ -3,7 +3,7 @@ title: "8 Home Remedies for Dry, Sore Feet ..."
 description: "Vinegar Soak; Baking Soda Soak; The Sock Effect; Peppermint Oil; It’s All in the Oatmeal; More ..."
 url: "https://shoes.allwomenstalk.com/home-remedies-for-dry-sore-feet/"
 category: "shoes"
-last_updated: "2026-06-25"
+last_updated: "2026-07-02"
 ---
 
 # 8 Home Remedies for Dry, Sore Feet ...
@@ -46,15 +46,15 @@ These are 8 of the best home remedies for sore feet. Which ones will you try? Do
 
 ## Related Posts
 
-- [fighting a hangover](https://lifestyle.allwomenstalk.com/little-known-ways-to-fight-a-hangover/)
-- [witch hazel for cleaning piercings](https://jewelry.allwomenstalk.com/ways-to-care-for-body-piercings/)
-- [bath salt blends](https://diy.allwomenstalk.com/bath-salts-to-make-yourself/)
-- [detox after drinking alcohol](https://health.allwomenstalk.com/ways-to-detox-after-drinking/)
-- [bath recipes](https://skincare.allwomenstalk.com/relaxing-and-beneficial-bath-recipes-to-try/)
-- [burnt toast stomach ache](https://health.allwomenstalk.com/natural-ways-to-ease-an-upset-stomach/)
-- [vaseline eyeshadow](https://beauty.allwomenstalk.com/uses-of-vaseline/)
 - [dry hands in winter home remedies](https://skincare.allwomenstalk.com/remedies-for-dry-hands/)
 - [loreal riche le stylo smoky shadow glistening garn...](https://hair.allwomenstalk.com/awesome-tips-for-an-invigorating-scalp-massage/)
+- [bath salt blends](https://diy.allwomenstalk.com/bath-salts-to-make-yourself/)
+- [witch hazel for cleaning piercings](https://jewelry.allwomenstalk.com/ways-to-care-for-body-piercings/)
+- [burnt toast stomach ache](https://health.allwomenstalk.com/natural-ways-to-ease-an-upset-stomach/)
+- [bath recipes](https://skincare.allwomenstalk.com/relaxing-and-beneficial-bath-recipes-to-try/)
+- [detox after drinking alcohol](https://health.allwomenstalk.com/ways-to-detox-after-drinking/)
+- [vaseline eyeshadow](https://beauty.allwomenstalk.com/uses-of-vaseline/)
+- [fighting a hangover](https://lifestyle.allwomenstalk.com/little-known-ways-to-fight-a-hangover/)
 - [baking soda itchy scalp](https://skincare.allwomenstalk.com/helpful-home-remedies-for-an-itchy-scalp/)
 - [7 Tricks to Cure Dry Skin ...](https://skincare.allwomenstalk.com/tricks-to-cure-dry-skin/)
 - [8 Dry Skin Remedies That Will Work for You ...](https://skincare.allwomenstalk.com/dry-skin-remedies-that-will-work-for-you/)

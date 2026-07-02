@@ -3,7 +3,7 @@ title: "5 Gorgeous Black Alexander Wang Platform Shoes ..."
 description: "#1; #2; #3; #4; #5; More ..."
 url: "https://shoes.allwomenstalk.com/gorgeous-black-alexander-wang-platform-shoes/"
 category: "shoes"
-last_updated: "2026-06-25"
+last_updated: "2026-07-02"
 ---
 
 # 5 Gorgeous Black Alexander Wang Platform Shoes ...
@@ -30,16 +30,16 @@ last_updated: "2026-06-25"
 
 ## Related Posts
 
-- [6 Chic Metallic Marni Platform Shoes ...](https://shoes.allwomenstalk.com/chic-metallic-marni-platform-shoes/)
-- [tila shoes](https://shoes.allwomenstalk.com/hot-brown-tila-march-platform-shoes/)
-- [brian atwood shoes](https://shoes.allwomenstalk.com/glamorous-camel-brian-atwood-pump-shoes/)
-- [5 Chic Red Sergio Rossi High Heels ...](https://shoes.allwomenstalk.com/chic-red-sergio-rossi-high-heels/)
-- [10 Glamorous Black Marni Sandals ...](https://shoes.allwomenstalk.com/glamorous-black-marni-sandals/)
-- [loreal paris riche stylo smoky shadow vegas](https://shoes.allwomenstalk.com/chic-camel-jerome-c-rousseau-platform-shoes/)
-- [8 Fabulous Black Jean-Michel Cazabat Platform Shoe...](https://shoes.allwomenstalk.com/fabulous-black-jean-michel-cazabat-platform-shoes/)
 - [paris stylo smoky eye bottomless java](https://shoes.allwomenstalk.com/beautiful-metallic-diego-dolcini-platform-shoes/)
+- [5 Chic Red Sergio Rossi High Heels ...](https://shoes.allwomenstalk.com/chic-red-sergio-rossi-high-heels/)
+- [6 Chic Metallic Marni Platform Shoes ...](https://shoes.allwomenstalk.com/chic-metallic-marni-platform-shoes/)
 - [4 Stylish Orange Prada Pump Shoes ...](https://shoes.allwomenstalk.com/stylish-orange-prada-pump-shoes/)
+- [8 Fabulous Black Jean-Michel Cazabat Platform Shoe...](https://shoes.allwomenstalk.com/fabulous-black-jean-michel-cazabat-platform-shoes/)
 - [4 Fabulous Black Rag & Bone Wedges ...](https://shoes.allwomenstalk.com/fabulous-black-rag-bone-wedges/)
+- [brian atwood shoes](https://shoes.allwomenstalk.com/glamorous-camel-brian-atwood-pump-shoes/)
+- [loreal paris riche stylo smoky shadow vegas](https://shoes.allwomenstalk.com/chic-camel-jerome-c-rousseau-platform-shoes/)
+- [tila shoes](https://shoes.allwomenstalk.com/hot-brown-tila-march-platform-shoes/)
+- [10 Glamorous Black Marni Sandals ...](https://shoes.allwomenstalk.com/glamorous-black-marni-sandals/)
 - [6 Glamorous Green Alexander Wang High Heels ...](https://shoes.allwomenstalk.com/glamorous-green-alexander-wang-high-heels/)
 - [6 Stylish Black Alexander Wang Flats ...](https://shoes.allwomenstalk.com/stylish-black-alexander-wang-flats/)
 
