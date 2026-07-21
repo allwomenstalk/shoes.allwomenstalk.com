@@ -3,7 +3,7 @@ title: "9 Gorgeous Floral Patterned Heels for Spring ..."
 description: "Pink Lace Floral Platforms; Nude Floral Lace Pump Heels; Blue Floral Faux Leather Closed Toe Platform Pump Heels; Women’s Black Harmony Floral Heel; Sequined Tulip Print Pumps; More ..."
 url: "https://shoes.allwomenstalk.com/gorgeous-floral-patterned-heels-for-spring/"
 category: "shoes"
-last_updated: "2026-07-02"
+last_updated: "2026-07-21"
 ---
 
 # 9 Gorgeous Floral Patterned Heels for Spring ...
@@ -71,11 +71,11 @@ Floral patterns look great on just about any item of clothing, provided the desi
 - [minnie slang](https://shoes.allwomenstalk.com/stunning-shoes-by-milly-j-designer-extraordinaire/)
 - [lk bennett shilo shoes](https://shoes.allwomenstalk.com/best-nude-pumps/)
 - [orsay leather jacket](https://shoes.allwomenstalk.com/best-dorsay-pumps/)
-- [Lauren Ralph Lauren Jayel Pump](https://allwomenstalk.com/lauren-ralph-lauren-jayel-pump/)
-- [manolo blahniks](https://shoes.allwomenstalk.com/expensive-but-beautiful-manolo-blahnik-shoes/)
 - [2 Die 4: Nicholas Kirkwood Fluro Python Lace-up Sa...](https://allwomenstalk.com/2-die-4-nicholas-kirkwood-fluro-python-lace-up-sandals/)
-- [2 Die 4: Sergio Rossi Suede Boots](https://allwomenstalk.com/2-die-4-sergio-rossi-suede-boots/)
 - [womens metallic sandals](https://shoes.allwomenstalk.com/best-metallic-sandals/)
+- [Lauren Ralph Lauren Jayel Pump](https://allwomenstalk.com/lauren-ralph-lauren-jayel-pump/)
+- [2 Die 4: Sergio Rossi Suede Boots](https://allwomenstalk.com/2-die-4-sergio-rossi-suede-boots/)
+- [manolo blahniks](https://shoes.allwomenstalk.com/expensive-but-beautiful-manolo-blahnik-shoes/)
 - [elegant white shoes](https://shoes.allwomenstalk.com/elegant-black-and-white-shoes/)
 - [stuart weitzman bridal](https://shoes.allwomenstalk.com/elegant-bridal-and-evening-shoes-from-stuart-weitzman/)
 - [4 Gorgeous Pastel Vionnet High Heels ...](https://shoes.allwomenstalk.com/gorgeous-pastel-vionnet-high-heels/)
