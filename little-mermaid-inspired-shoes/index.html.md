@@ -3,7 +3,7 @@ title: "7 'Little Mermaid' Inspired Shoes ..."
 description: "Nine West Flume; Glam Shell Bootie; Seagoing My Way? Heel; Barefoot Tess Shoes, Madrid Flats; Vince Camuto Ellen Ballet Flats; More ..."
 url: "https://shoes.allwomenstalk.com/little-mermaid-inspired-shoes/"
 category: "shoes"
-last_updated: "2026-07-21"
+last_updated: "2026-07-24"
 ---
 
 # 7 'Little Mermaid' Inspired Shoes ...
@@ -54,14 +54,14 @@ Top Image Source: [pinterest.com](https://www.pinterest.com/pin/3300300973941986
 
 ## Related Posts
 
-- [fabulous flats](https://shoes.allwomenstalk.com/fabulous-flats-under-20/)
 - [cinderella shoes](https://shoes.allwomenstalk.com/cinderella-inspired-shoes/)
 - [best lbd](https://shoes.allwomenstalk.com/best-shoes-for-your-lbd/)
+- [barefoot shoes for sports](https://shoes.allwomenstalk.com/best-barefoot-shoes/)
 - [sleeping beauty heels](https://shoes.allwomenstalk.com/sleeping-beauty-inspired-shoes/)
 - [t strap designer shoes](https://shoes.allwomenstalk.com/stylish-t-strap-shoes/)
-- [valentines day shoe](https://shoes.allwomenstalk.com/sweet-shoes-for-valentines-day/)
-- [barefoot shoes for sports](https://shoes.allwomenstalk.com/best-barefoot-shoes/)
+- [fabulous flats](https://shoes.allwomenstalk.com/fabulous-flats-under-20/)
 - [bow booties](https://shoes.allwomenstalk.com/beautiful-bow-boots/)
+- [valentines day shoe](https://shoes.allwomenstalk.com/sweet-shoes-for-valentines-day/)
 - [bodycon dress with tights and boots](https://shoes.allwomenstalk.com/beautiful-vegan-booties/)
 - [shoes with cat design](https://shoes.allwomenstalk.com/cool-cat-shoes/)
 - [7 Cute Shoes by Chinese Laundry ...](https://shoes.allwomenstalk.com/7-cute-shoes-by-chinese-laundry/)
