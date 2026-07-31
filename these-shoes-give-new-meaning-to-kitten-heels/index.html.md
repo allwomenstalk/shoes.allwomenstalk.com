@@ -3,7 +3,7 @@ title: "These 8 Shoes Give New Meaning to \"Kitten Heels\" ..."
 description: "Black & Mint Kitty Flats; Wee Nose & Whiskers Black Heels; Dia De Los Meow-toes Flats; Black & White Polka Dots Kitty Heels; Slightly Nautical Kitty Flats; More ..."
 url: "https://shoes.allwomenstalk.com/these-shoes-give-new-meaning-to-kitten-heels/"
 category: "shoes"
-last_updated: "2026-07-24"
+last_updated: "2026-07-31"
 ---
 
 # These 8 Shoes Give New Meaning to "Kitten Heels" ...
@@ -60,13 +60,13 @@ Which of these kitty shoes would you wear, and how would you wear them?
 
 ## Related Posts
 
-- [heels hack](https://shoes.allwomenstalk.com/do-these-things-before-buying-a-pair-of-heels/)
 - [luisa via roma loafers and moccasins](https://shoes.allwomenstalk.com/pairs-of-loafers-youll-love-to-walk-around-town-in/)
 - [how to keep shoes from dry rotting](https://shoes.allwomenstalk.com/ways-to-keep-your-shoes-looking-like-new/)
-- [how to soothe feet after wearing heels](https://shoes.allwomenstalk.com/how-to-soothe-your-feet-after-wearing-heels/)
+- [heels hack](https://shoes.allwomenstalk.com/do-these-things-before-buying-a-pair-of-heels/)
 - [glitzy shoes](https://shoes.allwomenstalk.com/glitzy-shoes-dorothy-would-be-envious-of/)
-- [boots made for walking gif](https://shoes.allwomenstalk.com/dont-make-these-mistakes-with-your-winter-boots/)
 - [how to break in leather boots](https://shoes.allwomenstalk.com/how-to-break-in-your-new-boots/)
+- [boots made for walking gif](https://shoes.allwomenstalk.com/dont-make-these-mistakes-with-your-winter-boots/)
+- [how to soothe feet after wearing heels](https://shoes.allwomenstalk.com/how-to-soothe-your-feet-after-wearing-heels/)
 - [outfit with ankle boots](https://shoes.allwomenstalk.com/these-celebs-offer-up-some-ways-to-wear-ankle-boots/)
 - [open toe tall boots](https://shoes.allwomenstalk.com/which-of-these-ways-will-you-wear-peep-toe-booties-this-fall/)
 - [boots for short dresses](https://fashion.allwomenstalk.com/how-short-girls-can-get-away-with-wearing-knee-high-boots/)
