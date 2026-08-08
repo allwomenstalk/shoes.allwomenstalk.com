@@ -3,7 +3,7 @@ title: "7 Fabulous Wedges for Summer 2012 ..."
 description: "Mulberry Patent Leather Wedge Sandals; Michael Kors Ariana Ostrich-Effect Leather Wedge Sandals; Proenza Schouler Leather and Cork Wedge Sandals; Jimmy Choo Pearl Striped Leather and Suede Platform Wedges; Missoni Leather and Crochet-Knit Platform Sandals; More ..."
 url: "https://shoes.allwomenstalk.com/fabulous-wedges-for-summer/"
 category: "shoes"
-last_updated: "2026-08-03"
+last_updated: "2026-08-08"
 ---
 
 # 7 Fabulous Wedges for Summer 2012 ...
@@ -65,16 +65,16 @@ Top Image Source: [weheartit.com](https://weheartit.com/entry/14397079)
 
 ## Related Posts
 
-- [affordable shoes for women](https://shoes.allwomenstalk.com/affordable-shoes-that-i-love/)
-- [7 Party Perfect Shoes under $100 ...](https://shoes.allwomenstalk.com/party-perfect-shoes-under-100/)
-- [7 Fabulous Pairs of Beach Flip Flops ...](https://shoes.allwomenstalk.com/fabulous-pairs-of-beach-flip-flops/)
-- [classicpumps](https://shoes.allwomenstalk.com/classic-pumps-for-the-new-season/)
 - [old head shoes](https://fashion.allwomenstalk.com/ways-to-give-your-old-shoes-a-makeover/)
-- [8 Tips for Choosing Athletic Shoes ...](https://shoes.allwomenstalk.com/tips-for-choosing-athletic-shoes/)
+- [7 Fabulous Pairs of Beach Flip Flops ...](https://shoes.allwomenstalk.com/fabulous-pairs-of-beach-flip-flops/)
+- [affordable shoes for women](https://shoes.allwomenstalk.com/affordable-shoes-that-i-love/)
 - [10 Reasons Shoes Are Better than Men ...](https://allwomenstalk.com/10-reasons-shoes-are-better-than-men/)
-- [8 Wonderful Tips for Beautiful, Sandal Ready Feet ...](https://beauty.allwomenstalk.com/wonderful-tips-for-beautiful-sandal-ready-feet/)
-- [how to choose shoes for a dress](https://shoes.allwomenstalk.com/tips-on-how-to-choose-the-perfect-shoes-for-a-dress/)
 - [9 Stylish Fashion Slippers ...](https://shoes.allwomenstalk.com/stylish-fashion-slippers/)
+- [8 Wonderful Tips for Beautiful, Sandal Ready Feet ...](https://beauty.allwomenstalk.com/wonderful-tips-for-beautiful-sandal-ready-feet/)
+- [8 Tips for Choosing Athletic Shoes ...](https://shoes.allwomenstalk.com/tips-for-choosing-athletic-shoes/)
+- [7 Party Perfect Shoes under $100 ...](https://shoes.allwomenstalk.com/party-perfect-shoes-under-100/)
+- [how to choose shoes for a dress](https://shoes.allwomenstalk.com/tips-on-how-to-choose-the-perfect-shoes-for-a-dress/)
+- [classicpumps](https://shoes.allwomenstalk.com/classic-pumps-for-the-new-season/)
 - [7 New Wedges I Love ...](https://shoes.allwomenstalk.com/7-new-wedges-i-love/)
 - [7 Heeled Sandals ...](https://shoes.allwomenstalk.com/heeled-sandals/)
 
