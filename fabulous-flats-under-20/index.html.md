@@ -3,7 +3,7 @@ title: "8 Fabulous Flats under $20 ..."
 description: "Women’s Avery Bow Flat; Women’s Chelsea Flat; Sueded Pointy Toe Ballet Flat; Sueded Bow-Front Moccasin; Women’s Merona Madge Flat; More ..."
 url: "https://shoes.allwomenstalk.com/fabulous-flats-under-20/"
 category: "shoes"
-last_updated: "2026-08-08"
+last_updated: "2026-09-02"
 ---
 
 # 8 Fabulous Flats under $20 ...
@@ -62,16 +62,16 @@ These 8 fabulous flats under $20 are a simple way to spruce up last year’s out
 
 ## Related Posts
 
-- [t strap designer shoes](https://shoes.allwomenstalk.com/stylish-t-strap-shoes/)
-- [bow booties](https://shoes.allwomenstalk.com/beautiful-bow-boots/)
-- [very short heels](https://shoes.allwomenstalk.com/new-season-low-heeled-shoes/)
-- [bodycon dress with tights and boots](https://shoes.allwomenstalk.com/beautiful-vegan-booties/)
-- [valentines day shoe](https://shoes.allwomenstalk.com/sweet-shoes-for-valentines-day/)
-- [shoes with cat design](https://shoes.allwomenstalk.com/cool-cat-shoes/)
-- [cute oxford flats](https://shoes.allwomenstalk.com/fabulous-oxford-flats-under-30/)
-- [toms disney shoes](https://shoes.allwomenstalk.com/darling-disney-toms/)
 - [famous women shoes](https://shoes.allwomenstalk.com/most-famous-shoe-designers/)
 - [barefoot shoes for sports](https://shoes.allwomenstalk.com/best-barefoot-shoes/)
+- [bow booties](https://shoes.allwomenstalk.com/beautiful-bow-boots/)
+- [cute oxford flats](https://shoes.allwomenstalk.com/fabulous-oxford-flats-under-30/)
+- [valentines day shoe](https://shoes.allwomenstalk.com/sweet-shoes-for-valentines-day/)
+- [t strap designer shoes](https://shoes.allwomenstalk.com/stylish-t-strap-shoes/)
+- [very short heels](https://shoes.allwomenstalk.com/new-season-low-heeled-shoes/)
+- [toms disney shoes](https://shoes.allwomenstalk.com/darling-disney-toms/)
+- [shoes with cat design](https://shoes.allwomenstalk.com/cool-cat-shoes/)
+- [bodycon dress with tights and boots](https://shoes.allwomenstalk.com/beautiful-vegan-booties/)
 - [8 Lace-up Shoes under $50 ...](https://shoes.allwomenstalk.com/8-lace-up-shoes-under-50/)
 - [8 Perfect Bridal Flats ...](https://shoes.allwomenstalk.com/8-perfect-bridal-flats/)
 
